@@ -2,297 +2,297 @@
 
 ## Coloseni - 1 - *Pavel laudă pe coloseni și-i îndeamnă să sporească în credință. Dumnezeiasca vrednicie a lui Hristos, Izbăvitorul nostru al tuturor. Pavel se bucură în suferințele sale*
 
-##### 1:1
+##### 1,1
 Pavel, apostol al lui Hristos Iisus prin voinţa lui Dumnezeu, şi Timotei, fratele nostru,
 
-##### 1:2
+##### 1,2
 Sfinţilor şi credincioşilor fraţi întru Hristos, care sunt în Colose: Har vouă şi pace de la Dumnezeu, Tatăl nostru, şi de la Domnul nostru Iisus Hristos.
 
-##### 1:3
+##### 1,3
 Mulţumim lui Dumnezeu şi Tatăl Domnului nostru Iisus Hristos, rugându-ne totdeauna pentru voi,
 
-##### 1:4
+##### 1,4
 Căci am auzit despre credinţa voastră în Hristos Iisus şi despre dragostea ce aveţi către toţi sfinţii,
 
-##### 1:5
+##### 1,5
 Pentru nădejdea cea gătită vouă în ceruri, de care aţi auzit mai înainte în cuvântul adevărului Evangheliei,
 
-##### 1:6
+##### 1,6
 Care, ajungând la voi, precum şi în toată lumea, aduce roadă şi sporeşte întocmai ca la voi, din ziua în care aţi auzit şi aţi cunoscut, întru adevăr, harul lui Dumnezeu.
 
-##### 1:7
+##### 1,7
 Precum aţi primit învăţătură de la Epafras, iubitul, împreună-slujitor cu noi, care este pentru voi credincios slujitor al lui Hristos,
 
-##### 1:8
+##### 1,8
 Şi care ne-a arătat iubirea voastră cea întru Duhul.
 
-##### 1:9
+##### 1,9
 De aceea şi noi, din ziua în care am auzit aceasta, nu încetăm să ne rugăm pentru voi şi să cerem să vă umpleţi de cunoaşterea voii Lui, întru toată înţelepciunea şi priceperea duhovnicească,
 
-##### 1:10
+##### 1,10
 Ca voi să umblaţi cu vrednicie întru Domnul, plăcuţi Lui în toate, aducând roadă în orice lucru bun şi sporind în cunoaşterea lui Dumnezeu.
 
-##### 1:11
+##### 1,11
 Şi întăriţi fiind cu toată puterea, după puterea slavei Lui, spre toată stăruinţa şi îndelunga-răbdare,
 
-##### 1:12
+##### 1,12
 Mulţumind cu bucurie Tatălui celui ce ne-a învrednicit pe noi să luăm parte la moştenirea sfinţilor, întru lumină.
 
-##### 1:13
+##### 1,13
 El ne-a scos de sub puterea întunericului şi ne-a strămutat în Împărăţia Fiului iubirii Sale,
 
-##### 1:14
+##### 1,14
 Întru Care avem răscumpărarea prin sângele Lui, adică iertarea păcatelor;
 
-##### 1:15
+##### 1,15
 Acesta este chipul lui Dumnezeu celui nevăzut, mai întâi născut decât toată făptura.
 
-##### 1:16
+##### 1,16
 Pentru că întru El au fost făcute toate, cele din ceruri şi cele de pe pământ, cele văzute, şi cele nevăzute, fie tronuri, fie domnii, fie începătorii, fie stăpânii. Toate s-au făcut prin El şi pentru El.
 
-##### 1:17
+##### 1,17
 El este mai înainte decât toate şi toate prin El sunt aşezate.
 
-##### 1:18
+##### 1,18
 Şi El este capul trupului, al Bisericii; El este începutul, Întâiul născut din morţi, ca să fie El cel dintâi întru toate.
 
-##### 1:19
+##### 1,19
 Căci în El a binevoit (Dumnezeu) să sălăşluiască toată plinirea.
 
-##### 1:20
+##### 1,20
 Şi printr-Însul toate cu Sine să le împace, fie cele de pe pământ, fie cele din ceruri, făcând pace prin El, prin sângele crucii Sale.
 
-##### 1:21
+##### 1,21
 Dar pe voi, care oarecând eraţi înstrăinaţi şi vrăjmaşi cu mintea voastră către lucrurile rele, de acum v-a împăcat,
 
-##### 1:22
+##### 1,22
 Prin moartea (Fiului Său) în trupul cărnii Lui, ca să vă pună înaintea Sa sfinţi, fără de prihană şi nevinovaţi,
 
-##### 1:23
+##### 1,23
 Dacă, într-adevăr, rămâneţi întemeiaţi în credinţă, întăriţi şi neclintiţi de la nădejdea Evangheliei pe care aţi auzit-o, care a fost propovăduită la toată făptura de sub cer şi al cărei slujitor m-am făcut eu, Pavel.
 
-##### 1:24
+##### 1,24
 Acum mă bucur de suferinţele mele pentru voi şi împlinesc, în trupul meu, lipsurile necazurilor lui Hristos, pentru trupul Lui, adică Biserica,
 
-##### 1:25
+##### 1,25
 Al cărei slujitor m-am făcut, potrivit iconomiei lui Dumnezeu, ce mi-a fost dată mie pentru voi, ca să aduc la îndeplinire cuvântul lui Dumnezeu,
 
-##### 1:26
+##### 1,26
 Taina cea din veci ascunsă neamurilor, iar acum descoperită sfinţilor Săi,
 
-##### 1:27
+##### 1,27
 Cărora a voit Dumnezeu să le arate care este bogăţia slavei acestei taine între neamuri, adică Hristos cel dintru voi, nădejdea slavei.
 
-##### 1:28
+##### 1,28
 Pe El noi Îl vestim, sfătuind pe orice om şi învăţând pe orice om, întru toată înţelepciunea, ca să înfăţişăm pe tot omul, desăvârşit, în Hristos Iisus.
 
-##### 1:29
+##### 1,29
 Spre aceasta mă şi ostenesc şi mă lupt, potrivit lucrării Lui, care se săvârşeşte în mine cu putere.
 
 
 ## Coloseni - 2 - *Împotriva învățătorilor mincinoși. Viața cea întru Hristos*
 
-##### 2:1
+##### 2,1
 Căci voiesc ca voi să ştiţi cât de mare luptă am pentru voi şi pentru cei din Laodiceea şi pentru toţi câţi n-au văzut faţa mea în trup,
 
-##### 2:2
+##### 2,2
 Ca să se mângâie inimile lor, şi ca ei, strâns uniţi în iubire, să aibă belşugul deplinei înţelegeri pentru cunoaşterea tainei lui Dumnezeu-Tatăl şi a lui Hristos,
 
-##### 2:3
+##### 2,3
 Întru care sunt ascunse toate vistieriile înţelepciunii şi ale cunoştinţei.
 
-##### 2:4
+##### 2,4
 Vă spun aceasta, ca nimeni să nu vă înşele prin cuvinte amăgitoare.
 
-##### 2:5
+##### 2,5
 Căci deşi cu trupul sunt departe, cu duhul însă sunt împreună cu voi, bucurându-mă şi văzând buna voastră rânduială şi tăria credinţei voastre în Hristos.
 
-##### 2:6
+##### 2,6
 Deci, precum aţi primit pe Hristos Iisus, Domnul, aşa să umblaţi întru El.
 
-##### 2:7
+##### 2,7
 Înrădăcinaţi şi zidiţi fiind într-Însul, întăriţi în credinţă, după cum aţi fost învăţaţi, şi prisosind în ea cu mulţumire.
 
-##### 2:8
+##### 2,8
 Luaţi aminte să nu vă fure minţile cineva cu filozofia şi cu deşarta înşelăciune din predania omenească, după înţelesurile cele slabe ale lumii şi nu după Hristos.
 
-##### 2:9
+##### 2,9
 Căci întru El locuieşte, trupeşte, toată plinătatea Dumnezeirii,
 
-##### 2:10
+##### 2,10
 Şi sunteţi deplini întru El, Care este cap a toată domnia şi stăpânirea.
 
-##### 2:11
+##### 2,11
 În El aţi şi fost tăiaţi împrejur, cu tăiere împrejur nefăcută de mână, prin dezbrăcarea de trupul cărnii, întru tăierea împrejur a lui Hristos.
 
-##### 2:12
+##### 2,12
 Îngropaţi fiind împreună cu El prin botez, cu El aţi şi înviat prin credinţa în lucrarea lui Dumnezeu, Cel ce L-a înviat pe El din morţi.
 
-##### 2:13
+##### 2,13
 Iar pe voi care eraţi morţi, în fărădelegile şi în netăierea împrejur a trupului vostru, v-a făcut vii, împreună cu Sine, iertându-ne toate greşalele;
 
-##### 2:14
+##### 2,14
 Ştergând zapisul ce era asupra noastră, care ne era potrivnic cu rânduielile lui, şi l-a luat din mijloc, pironindu-l pe cruce.
 
-##### 2:15
+##### 2,15
 Dezbrăcând (de putere) începătoriile şi stăpâniile, le-a dat de ocară în văzul tuturor, biruind asupra lor prin cruce.
 
-##### 2:16
+##### 2,16
 Nimeni deci să nu vă judece pentru mâncare sau băutură, sau cu privire la vreo sărbătoare, sau lună nouă, sau la sâmbete,
 
-##### 2:17
+##### 2,17
 Care sunt umbră celor viitoare iar trupul (este) al lui Hristos.
 
-##### 2:18
+##### 2,18
 Nimeni să nu vă smulgă biruinţa printr-o prefăcută smerenie şi printr-o făţarnică închinare la îngeri, încercând să pătrundă în cele ce n-a văzut, şi îngâmfându-se zadarnic cu închipuirea lui trupească,
 
-##### 2:19
+##### 2,19
 În loc să se ţină strâns de capul de la care trupul tot – prin încheieturi şi legături, îndestulându-se şi întocmindu-se – sporeşte în creşterea lui Dumnezeu.
 
-##### 2:20
+##### 2,20
 Dacă deci aţi murit împreună cu Hristos pentru înţelesurile cele slabe ale lumii, pentru ce atunci, ca şi cum aţi vieţui în lume, răbdaţi porunci ca acestea:
 
-##### 2:21
+##### 2,21
 Nu lua, nu gusta, nu te atinge!
 
-##### 2:22
+##### 2,22
 – Toate lucruri menite să piară prin întrebuinţare –, potrivit unor rânduieli şi învăţături omeneşti?
 
-##### 2:23
+##### 2,23
 Unele ca acestea au oarecare înfăţişare de înţelepciune, în păruta lor cucernicie, în smerenie şi în necruţarea trupului, dar n-au niciun preţ şi sunt numai pentru saţiul trupului.
 
 
 ## Coloseni - 3 - *Omul cel nou trebuie să se îmbrace cu viața cea nouă. Datoriile soților, copiilor, părinților, slugilor, stăpânilor*
 
-##### 3:1
+##### 3,1
 Aşadar, dacă aţi înviat împreună cu Hristos, căutaţi cele de sus, unde se află Hristos, şezând de-a dreapta lui Dumnezeu;
 
-##### 3:2
+##### 3,2
 Cugetaţi cele de sus, nu cele de pe pământ;
 
-##### 3:3
+##### 3,3
 Căci voi aţi murit şi viaţa voastră este ascunsă cu Hristos întru Dumnezeu.
 
-##### 3:4
+##### 3,4
 Iar când Hristos, Care este viaţa voastră, Se va arăta, atunci şi voi, împreună cu El, vă veţi arăta întru slavă.
 
-##### 3:5
+##### 3,5
 Drept aceea, omorâţi mădularele voastre, cele pământeşti: desfrânarea, necurăţia, patima, pofta rea şi lăcomia, care este închinare la idoli,
 
-##### 3:6
+##### 3,6
 Pentru care vine mânia lui Dumnezeu peste fiii neascultării,
 
-##### 3:7
+##### 3,7
 În care păcate aţi umblat şi voi odinioară, pe când trăiaţi în ele.
 
-##### 3:8
+##### 3,8
 Acum deci vă lepădaţi şi voi de toate acestea: mânia, iuţimea, răutatea, defăimarea, cuvântul de ruşine din gura voastră.
 
-##### 3:9
+##### 3,9
 Nu vă minţiţi unul pe altul, fiindcă v-aţi dezbrăcat de omul cel vechi, dimpreună cu faptele lui,
 
-##### 3:10
+##### 3,10
 Şi v-aţi îmbrăcat cu cel nou, care se înnoieşte, spre deplină cunoştinţă, după chipul Celui ce l-a zidit,
 
-##### 3:11
+##### 3,11
 Unde nu mai este elin şi iudeu, tăiere împrejur şi netăiere împrejur, barbar, scit, rob ori liber, ci toate şi întru toţi Hristos.
 
-##### 3:12
+##### 3,12
 Îmbrăcaţi-vă, dar, ca aleşi ai lui Dumnezeu, sfinţi şi prea iubiţi, cu milostivirile îndurării, cu bunătate, cu smerenie, cu blândeţe, cu îndelungă-răbdare,
 
-##### 3:13
+##### 3,13
 Îngăduindu-vă unii pe alţii şi iertând unii altora, dacă are cineva vreo plângere împotriva cuiva; după cum şi Hristos v-a iertat vouă, aşa să iertaţi şi voi.
 
-##### 3:14
+##### 3,14
 Iar peste toate acestea, îmbrăcaţi-vă întru dragoste, care este legătura desăvârşirii.
 
-##### 3:15
+##### 3,15
 Şi pacea lui Hristos, întru care aţi fost chemaţi, ca să fiţi un singur trup, să stăpânească în inimile voastre; şi fiţi mulţumitori.
 
-##### 3:16
+##### 3,16
 Cuvântul lui Hristos să locuiască întru voi cu bogăţie. Învăţaţi-vă şi povăţuiţi-vă între voi, cu toată înţelepciunea. Cântaţi în inimile voastre lui Dumnezeu, mulţumindu-I, în psalmi, în laude şi în cântări duhovniceşti.
 
-##### 3:17
+##### 3,17
 Orice aţi face, cu cuvântul sau cu lucrul, toate să le faceţi în numele Domnului Iisus şi prin El să mulţumiţi lui Dumnezeu-Tatăl.
 
-##### 3:18
+##### 3,18
 Femeilor, supuneţi-vă bărbaţilor voştri, precum se cuvine, în Domnul.
 
-##### 3:19
+##### 3,19
 Bărbaţilor, iubiţi pe femeile voastre şi nu fiţi aspri cu ele.
 
-##### 3:20
+##### 3,20
 Copiilor, ascultaţi pe părinţii voştri întru toate, căci aceasta este bine-plăcut Domnului.
 
-##### 3:21
+##### 3,21
 Părinţilor, nu aţâţaţi la mânie pe copiii voştri, ca să nu se deznădăjduiască.
 
-##### 3:22
+##### 3,22
 Slugilor, ascultaţi întru toate pe stăpânii voştri cei trupeşti, nu slujind numai când sunt cu ochii pe voi, ca cei ce caută să placă oamenilor, ci în curăţia inimii, temându-vă de Domnul.
 
-##### 3:23
+##### 3,23
 Orice aţi face, lucraţi din toată inima, ca pentru Domnul şi nu ca pentru oameni,
 
-##### 3:24
+##### 3,24
 Bine ştiind că de la Domnul veţi primi răsplata moştenirii; căci Domnului Hristos slujiţi.
 
-##### 3:25
+##### 3,25
 Iar cel ce face nedreptate îşi va lua plata nedreptăţii, întrucât la Dumnezeu nu este părtinire.
 
 
 ## Coloseni - 4 - *Rugăciunea este de trebuință. Trebuie să ne purtăm înțelepțește. Tihic și Onisim*
 
-##### 4:1
+##### 4,1
 Stăpânilor, daţi slugilor voastre ce este drept şi potrivit, ştiind că şi voi aveţi Stăpân în ceruri.
 
-##### 4:2
+##### 4,2
 Stăruiţi în rugăciune, priveghind în ea cu mulţumire,
 
-##### 4:3
+##### 4,3
 Rugându-vă totodată şi pentru noi, ca Dumnezeu să ne deschidă uşa cuvântului, spre a vesti taina lui Hristos, pentru care mă şi găsesc în lanţuri,
 
-##### 4:4
+##### 4,4
 Ca să o arăt aşa cum se cuvine să grăiesc.
 
-##### 4:5
+##### 4,5
 Umblaţi cu înţelepciune faţă de cei ce sunt afară (de Biserică), preţuind vremea.
 
-##### 4:6
+##### 4,6
 Vorba voastră să fie totdeauna plăcută, dreasă cu sare, ca să ştiţi cum trebuie să răspundeţi fiecăruia.
 
-##### 4:7
+##### 4,7
 Toate câte mă privesc pe mine le va face cunoscute Tihic, iubitul frate, credincios slujitor şi împreună-rob cu mine în Domnul.
 
-##### 4:8
+##### 4,8
 L-am trimis pe el la voi tocmai pentru aceasta, ca să ştiţi cum ne aflăm şi ca să mângâie inimile voastre,
 
-##### 4:9
+##### 4,9
 Împreună cu Onisim, credinciosul şi iubitul frate, care este dintre voi; ei vă vor aduce la cunoştinţă toate cele de aici.
 
-##### 4:10
+##### 4,10
 Vă îmbrăţişează Aristarh, cel întemniţat împreună cu mine, şi Marcu, vărul lui Barnaba – în privinţa căruia aţi primit porunci; de va veni la voi primiţi-l,
 
-##### 4:11
+##### 4,11
 Asemenea şi Iisus, cel ce se numeşte Iustus, care sunt din tăierea împrejur; numai aceştia au lucrat împreună cu mine pentru Împărăţia lui Dumnezeu. Ei au fost cei ce mi-au adus mângâiere.
 
-##### 4:12
+##### 4,12
 Vă îmbrăţişează Epafras, care este dintre voi, rob al lui Iisus Hristos, pururea luptând pentru voi în rugăciunile sale, ca să staţi desăvârşiţi şi plini de tot ce este voinţa lui Dumnezeu.
 
-##### 4:13
+##### 4,13
 Căci martor îi sunt că are multă râvnă pentru voi şi pentru cei din Laodiceea şi din Ierapole.
 
-##### 4:14
+##### 4,14
 Vă îmbrăţişează Luca, doctorul cel iubit, şi Dima.
 
-##### 4:15
+##### 4,15
 Îmbrăţişaţi pe fraţii din Laodiceea şi pe Nimfas şi pe Biserica din casa lui.
 
-##### 4:16
+##### 4,16
 Şi după ce scrisoarea aceasta se va citi de către voi, faceţi să se citească şi în Biserica laodiceenilor, iar pe cea din Laodiceea să o citiţi şi voi.
 
-##### 4:17
+##### 4,17
 Şi spuneţi lui Arhip: Vezi de slujba pe care ai primit-o întru Domnul, ca să o îndeplineşti.
 
-##### 4:18
+##### 4,18
 Salutarea cu mâna mea, a lui Pavel. Aduceţi-vă aminte de lanţurile mele. Harul fie cu voi! Amin.
 

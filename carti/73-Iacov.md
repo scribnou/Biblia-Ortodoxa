@@ -2,339 +2,339 @@
 
 ## Iacov - 1 - *Ispitele sunt folositoare. Avuțiile trec degrabă. Ascultarea și împlinirea Legii. Limba trebuie ținută în frâu*
 
-##### 1:1
+##### 1,1
 Iacov, robul lui Dumnezeu şi al Domnului Iisus Hristos, celor douăsprezece seminţii, care sunt în împrăştiere, salutare.
 
-##### 1:2
+##### 1,2
 Mare bucurie să socotiţi, fraţii mei, când cădeţi în felurite ispite,
 
-##### 1:3
+##### 1,3
 Ştiind că încercarea credinţei voastre lucrează răbdarea;
 
-##### 1:4
+##### 1,4
 Iar răbdarea să-şi aibă lucrul ei desăvârşit, ca să fiţi desăvârşiţi şi întregi, nelipsiţi fiind de nimic.
 
-##### 1:5
+##### 1,5
 Şi de este cineva din voi lipsit de înţelepciune, să o ceară de la Dumnezeu, Cel ce dă tuturor fără deosebire şi fără înfruntare, şi i se va da.
 
-##### 1:6
+##### 1,6
 Să ceară însă cu credinţă, fără să aibă nicio îndoială, pentru că cine se îndoieşte este asemenea valului mării, mişcat de vânt şi aruncat încoace şi încolo.
 
-##### 1:7
+##### 1,7
 Să nu gândească omul acela că va lua ceva de la Dumnezeu.
 
-##### 1:8
+##### 1,8
 Bărbatul îndoielnic este nestatornic în toate căile sale.
 
-##### 1:9
+##### 1,9
 Iar fratele cel smerit să se laude întru înălţimea sa,
 
-##### 1:10
+##### 1,10
 Şi cel bogat întru smerenia sa, pentru că va trece ca floarea ierbii.
 
-##### 1:11
+##### 1,11
 Căci a răsărit soarele arzător şi a uscat iarba şi floarea ei a căzut şi frumuseţea feţei ei a pierit; tot aşa se va veşteji şi bogatul în alergăturile sale.
 
-##### 1:12
+##### 1,12
 Fericit este bărbatul care rabdă ispita, căci lămurit făcându-se va lua cununa vieţii, pe care a făgăduit-o Dumnezeu celor ce Îl iubesc pe El.
 
-##### 1:13
+##### 1,13
 Nimeni să nu zică, atunci când este ispitit: de la Dumnezeu sunt ispitit, pentru că Dumnezeu nu este ispitit de rele şi El însuşi nu ispiteşte pe nimeni;
 
-##### 1:14
+##### 1,14
 Ci fiecare este ispitit când este tras şi momit de însăşi pofta sa.
 
-##### 1:15
+##### 1,15
 Apoi pofta, zămislind, naşte păcat, iar păcatul, odată săvârşit, aduce moarte.
 
-##### 1:16
+##### 1,16
 Nu vă înşelaţi, fraţii mei prea iubiţi:
 
-##### 1:17
+##### 1,17
 Toată darea cea bună şi tot darul desăvârşit de sus este, pogorându-se de la Părintele luminilor, la Care nu este schimbare sau umbră de mutare.
 
-##### 1:18
+##### 1,18
 După voia Sa ne-a născut prin cuvântul adevărului, ca să fim începătură făpturilor Lui.
 
-##### 1:19
+##### 1,19
 Să ştiţi, iubiţii mei fraţi: Orice om să fie grabnic la ascultare, zăbavnic la vorbire, zăbavnic la mânie.
 
-##### 1:20
+##### 1,20
 Căci mânia omului nu lucrează dreptatea lui Dumnezeu.
 
-##### 1:21
+##### 1,21
 Pentru aceea, lepădând toată spurcăciunea şi prisosinţa răutăţii, primiţi cu blândeţe cuvântul sădit în voi, care poate să mântuiască sufletele voastre.
 
-##### 1:22
+##### 1,22
 Dar faceţi-vă împlinitori ai cuvântului, nu numai ascultători ai lui, amăgindu-vă pe voi înşivă.
 
-##### 1:23
+##### 1,23
 Căci dacă cineva este ascultător al cuvântului, iar nu şi împlinitor, el seamănă cu omul care priveşte în oglindă faţa firii sale;
 
-##### 1:24
+##### 1,24
 S-a privit pe sine şi s-a dus şi îndată a uitat ce fel era.
 
-##### 1:25
+##### 1,25
 Cine s-a uitat, însă, de aproape în legea cea desăvârşită a libertăţii şi a stăruit în ea, făcându-se nu ascultător care uită, ci împlinitor al lucrului, acela fericit va fi în lucrarea sa.
 
-##### 1:26
+##### 1,26
 Dacă cineva socoteşte că e cucernic, dar nu îşi ţine limba în frâu, ci îşi amăgeşte inima, cucernicia acestuia este zadarnică.
 
-##### 1:27
+##### 1,27
 Cucernicia curată şi neîntinată înaintea lui Dumnezeu şi Tatăl, aceasta este: să cercetăm pe orfani şi pe văduve în necazurile lor, şi să ne păzim pe noi fără de pată din partea lumii.
 
 
 ## Iacov - 2 - *Credința fără de fapte moartă este*
 
-##### 2:1
+##### 2,1
 Fraţii mei, nu căutând la faţa omului să aveţi credinţa în Domnul nostru Iisus Hristos, Domnul slavei.
 
-##### 2:2
+##### 2,2
 Căci, dacă va intra în adunarea voastră un om cu inele de aur în degete, în haină strălucită, şi va intra şi un sărac, în haină murdară,
 
-##### 2:3
+##### 2,3
 Iar voi puneţi ochii pe cel care poartă haină strălucită şi-i ziceţi: Tu şezi bine aici, pe când săracului îi ziceţi: Tu stai acolo, în picioare, sau: Şezi jos, la picioarele mele,
 
-##### 2:4
+##### 2,4
 N-aţi făcut voi, oare, în gândul vostru, deosebire între unul şi altul şi nu v-aţi făcut judecători cu socoteli viclene?
 
-##### 2:5
+##### 2,5
 Ascultaţi, iubiţii mei fraţi: Au nu Dumnezeu i-a ales pe cei ce sunt săraci în ochii lumii, dar bogaţi în credinţă şi moştenitori ai Împărăţiei pe care a făgăduit-o El celor ce Îl iubesc?
 
-##### 2:6
+##### 2,6
 Iar voi aţi necinstit pe cel sărac! Oare nu bogaţii vă asupresc pe voi şi nu ei vă târăsc la judecăţi?
 
-##### 2:7
+##### 2,7
 Nu sunt ei cei ce hulesc numele cel bun întru care aţi fost chemaţi?
 
-##### 2:8
+##### 2,8
 Dacă, într-adevăr, împliniţi legea împărătească, potrivit Scripturii: «Să iubeşti pe aproapele tău ca pe tine însuţi», bine faceţi;
 
-##### 2:9
+##### 2,9
 Iar de căutaţi la faţa omului, faceţi păcat şi legea vă osândeşte ca pe nişte călcători de lege.
 
-##### 2:10
+##### 2,10
 Pentru că cine va păzi toată legea, dar va greşi într-o singură poruncă, s-a făcut vinovat faţă de toate poruncile.
 
-##### 2:11
+##### 2,11
 Căci Cel ce a zis: «Să nu săvârşeşti adulter», a zis şi: «Să nu ucizi». Şi dacă nu săvârşeşti adulter, dar ucizi, te-ai făcut călcător de lege.
 
-##### 2:12
+##### 2,12
 Aşa să grăiţi şi aşa să lucraţi, ca unii care veţi fi judecaţi prin legea libertăţii.
 
-##### 2:13
+##### 2,13
 Căci judecata este fără milă pentru cel care n-a făcut milă. Şi mila biruieşte în faţa judecăţii.
 
-##### 2:14
+##### 2,14
 Ce folos, fraţii mei, dacă zice cineva că are credinţă, iar fapte nu are? Oare credinţa poate să-l mântuiască?
 
-##### 2:15
+##### 2,15
 Dacă un frate sau o soră sunt goi şi lipsiţi de hrana cea de toate zilele,
 
-##### 2:16
+##### 2,16
 Şi cineva dintre voi le-ar zice: Mergeţi în pace! Încălziţi-vă şi vă săturaţi, dar nu le daţi cele trebuincioase trupului, care ar fi folosul?
 
-##### 2:17
+##### 2,17
 Aşa şi cu credinţa: dacă nu are fapte, e moartă în ea însăşi.
 
-##### 2:18
+##### 2,18
 Dar va zice cineva: Tu ai credinţă, iar eu am fapte; arată-mi credinţa ta fără fapte şi eu îţi voi arăta, din faptele mele, credinţa mea.
 
-##### 2:19
+##### 2,19
 Tu crezi că unul este Dumnezeu? Bine faci; dar şi demonii cred şi se cutremură.
 
-##### 2:20
+##### 2,20
 Vrei însă să înţelegi, omule nesocotit, că credinţa fără de fapte moartă este?
 
-##### 2:21
+##### 2,21
 Avraam, părintele nostru, au nu din fapte s-a îndreptat, când a pus pe Isaac, fiul său, pe jertfelnic?
 
-##### 2:22
+##### 2,22
 Vezi că, credinţa lucra împreună cu faptele lui şi din fapte credinţa s-a desăvârşit?
 
-##### 2:23
+##### 2,23
 Şi s-a împlinit Scriptura care zice: «Şi a crezut Avraam lui Dumnezeu şi i s-a socotit lui ca dreptate» şi «a fost numit prieten al lui Dumnezeu».
 
-##### 2:24
+##### 2,24
 Vedeţi dar că din fapte este îndreptat omul, iar nu numai din credinţă.
 
-##### 2:25
+##### 2,25
 La fel şi Rahav, desfrânata, au nu din fapte s-a îndreptat când a primit pe cei trimişi şi i-a scos afară, pe altă cale?
 
-##### 2:26
+##### 2,26
 Căci precum trupul fără suflet mort este, astfel şi credinţa fără de fapte, moartă este.
 
 
 ## Iacov - 3 - *Înfrânarea limbii. Adevărata înțelepciune*
 
-##### 3:1
+##### 3,1
 Nu vă faceţi voi mulţi învăţători, fraţii mei, ştiind că (*noi, învăţătorii*) mai mare osândă vom lua.
 
-##### 3:2
+##### 3,2
 Pentru că toţi greşim în multe chipuri; dacă nu greşeşte cineva în cuvânt, acela este bărbat desăvârşit, în stare să înfrâneze şi tot trupul.
 
-##### 3:3
+##### 3,3
 Dar, dacă noi punem în gura cailor frâul, ca să ni-i supunem, ducem după noi şi trupul lor întreg.
 
-##### 3:4
+##### 3,4
 Iată şi corăbiile, deşi sunt atât de mari şi împinse de vânturi aprige, sunt totuşi purtate de o cârmă foarte mică încotro hotărăşte vrerea cârmaciului.
 
-##### 3:5
+##### 3,5
 Aşa şi limba: mic mădular este, dar cu mari lucruri se făleşte! Iată puţin foc şi cât codru aprinde!
 
-##### 3:6
+##### 3,6
 Foc este şi limba, lume a fărădelegii! Limba îşi are locul ei între mădularele noastre, dar spurcă tot trupul şi aruncă în foc drumul vieţii, după ce aprinsă a fost ea de flăcările gheenei.
 
-##### 3:7
+##### 3,7
 Pentru că orice fel de fiare şi de păsări, de târâtoare şi de vietăţi din mare se domoleşte şi s-a domolit de firea omenească,
 
-##### 3:8
+##### 3,8
 Dar limba, nimeni dintre oameni nu poate s-o domolească! Ea este un rău fără astâmpăr; ea este plină de venin aducător de moarte.
 
-##### 3:9
+##### 3,9
 Cu ea binecuvântăm pe Dumnezeu şi Tatăl, şi cu ea blestemăm pe oameni, care sunt făcuţi după asemănarea lui Dumnezeu.
 
-##### 3:10
+##### 3,10
 Din aceeaşi gură ies binecuvântarea şi blestemul. Nu trebuie, fraţii mei, să fie acestea aşa.
 
-##### 3:11
+##### 3,11
 Oare izvorul aruncă din aceeaşi vână, şi apa dulce şi pe cea amară?
 
-##### 3:12
+##### 3,12
 Nu cumva poate smochinul, fraţilor, să facă măsline, sau viţa de vie să facă smochine? Tot aşa, izvorul sărat nu poate să dea apă dulce.
 
-##### 3:13
+##### 3,13
 Cine este, între voi, înţelept şi priceput? Să arate, din buna-i purtare, faptele lui, în blândeţea înţelepciunii.
 
-##### 3:14
+##### 3,14
 Iar dacă aveţi râvnire amară şi zavistie, în inimile voastre, nu vă lăudaţi, nici nu minţiţi împotriva adevărului.
 
-##### 3:15
+##### 3,15
 Înţelepciunea aceasta nu vine de sus, ci este pământească, trupească, demonică.
 
-##### 3:16
+##### 3,16
 Deci, unde este pizmă şi zavistie, acolo este neorânduială şi orice lucru rău.
 
-##### 3:17
+##### 3,17
 Iar înţelepciunea cea de sus întâi este curată, apoi paşnică, îngăduitoare, ascultătoare, plină de milă şi de roade bune, neîndoielnică şi nefăţarnică.
 
-##### 3:18
+##### 3,18
 Şi roada dreptăţii se seamănă întru pace de cei ce lucrează pacea.
 
 
 ## Iacov - 4 - *Să fugim de plăcerile deșarte. Împotriva bârfitorilor și a celor îngâmfați*
 
-##### 4:1
+##### 4,1
 De unde vin războaiele şi de unde certurile dintre voi? Oare, nu de aici: din poftele voastre care se luptă în mădularele voastre?
 
-##### 4:2
+##### 4,2
 Poftiţi şi nu aveţi; ucideţi şi pizmuiţi şi nu puteţi dobândi ce doriţi; vă sfătuiţi şi vă războiţi, şi nu aveţi, pentru că nu cereţi.
 
-##### 4:3
+##### 4,3
 Cereţi şi nu primiţi, pentru că cereţi rău, ca voi să risipiţi în plăceri.
 
-##### 4:4
+##### 4,4
 Preadesfrânaţilor! Nu ştiţi, oare, că prietenia lumii este duşmănie faţă de Dumnezeu? Cine deci va voi să fie prieten cu lumea se face vrăjmaş lui Dumnezeu.
 
-##### 4:5
+##### 4,5
 Sau vi se pare că Scriptura grăieşte în deşert? Duhul, care sălăşluieşte în noi, ne pofteşte spre zavistie?
 
-##### 4:6
+##### 4,6
 Nu, ci dă mai mare har. Pentru aceea, zice: «Dumnezeu celor mândri le stă împotrivă, iar celor smeriţi le dă har».
 
-##### 4:7
+##### 4,7
 Supuneţi-vă deci lui Dumnezeu. Staţi împotriva diavolului şi el va fugi de la voi.
 
-##### 4:8
+##### 4,8
 Apropiaţi-vă de Dumnezeu şi Se va apropia şi El de voi. Curăţiţi-vă mâinile, păcătoşilor, şi sfinţiţi-vă inimile, voi cei îndoielnici.
 
-##### 4:9
+##### 4,9
 Pătrundeţi-vă de durere. Întristaţi-vă şi vă jeliţi. Râsul întoarcă-se în plâns şi bucuria voastră în întristare.
 
-##### 4:10
+##### 4,10
 Smeriţi-vă înaintea Domnului şi El vă va înălţa.
 
-##### 4:11
+##### 4,11
 Nu vă grăiţi de rău unul pe altul, fraţilor. Cel ce grăieşte de rău pe frate, ori judecă pe fratele său, grăieşte de rău legea şi judecă legea; iar dacă judeci legea nu eşti împlinitor al legii, ci judecător.
 
-##### 4:12
+##### 4,12
 Unul este Dătătorul legii şi Judecătorul: Cel ce poate să mântuiască şi să piardă. Iar tu cine eşti, care judeci pe aproapele?
 
-##### 4:13
+##### 4,13
 Veniţi acum cei care ziceţi: Astăzi sau mâine vom merge în cutare cetate, vom sta acolo un an şi vom face negoţ şi vom câştiga,
 
-##### 4:14
+##### 4,14
 Voi, care nu ştiţi ce se va întâmpla mâine, că ce este viaţa voastră? Abur sunteţi, care se arată o clipă, apoi piere.
 
-##### 4:15
+##### 4,15
 În loc ca voi să ziceţi: Dacă Domnul voieşte, vom trăi şi vom face aceasta sau aceea.
 
-##### 4:16
+##### 4,16
 Şi acum vă lăudaţi în trufia voastră. Orice laudă de acest fel este rea.
 
-##### 4:17
+##### 4,17
 Drept aceea, cine ştie să facă ce e bine şi nu face păcat are.
 
 
 ## Iacov - 5 - *Sfaturi către cei avuți. Răbdarea, jurământul, îngrijirea bolnavilor. Puterea rugăciunilor. Despre cei căzuți*
 
-##### 5:1
+##### 5,1
 Veniţi acum, voi bogaţilor, plângeţi şi vă tânguiţi de necazurile care vor să vină asupra voastră.
 
-##### 5:2
+##### 5,2
 Bogăţia voastră a putrezit şi hainele voastre le-au mâncat moliile.
 
-##### 5:3
+##### 5,3
 Aurul vostru şi argintul au ruginit şi rugina lor va fi mărturie asupra voastră şi ca focul va mistui trupurile voastre; aţi strâns comori în vremea din urmă.
 
-##### 5:4
+##### 5,4
 Dar, iată, plata lucrătorilor care au secerat ţarinile voastre, pe care voi aţi oprit-o, strigă; şi strigătele secerătorilor au intrat în urechile Domnului Savaot.
 
-##### 5:5
+##### 5,5
 V-aţi desfătat pe pământ şi v-aţi dezmierdat; hrănit-aţi inimile voastre în ziua înjunghierii.
 
-##### 5:6
+##### 5,6
 Osândit-aţi, omorât-aţi pe cel drept; el nu vi se împotriveşte.
 
-##### 5:7
+##### 5,7
 Drept aceea, fiţi îndelung-răbdători, fraţilor, până la venirea Domnului. Iată, plugarul aşteaptă roada cea scumpă a pământului, îndelung răbdând, până ce primeşte ploaia timpurie şi târzie.
 
-##### 5:8
+##### 5,8
 Fiţi, dar, şi voi îndelung-răbdători, întăriţi inimile voastre, căci venirea Domnului s-a apropiat.
 
-##### 5:9
+##### 5,9
 Nu vă plângeţi, fraţilor, unul împotriva celuilalt, ca să nu fiţi judecaţi; iată judecătorul stă înaintea uşilor.
 
-##### 5:10
+##### 5,10
 Luaţi, fraţilor, pildă de suferinţă şi de îndelungă răbdare pe prorocii care au grăit în numele Domnului.
 
-##### 5:11
+##### 5,11
 Iată, noi fericim pe cei ce au răbdat: aţi auzit de răbdarea lui Iov şi aţi văzut sfârşitul hărăzit lui de Domnul; că mult-milostiv este Domnul şi îndurător.
 
-##### 5:12
+##### 5,12
 Iar înainte de toate, fraţii mei, să nu vă juraţi nici pe cer, nici pe pământ, nici cu orice alt jurământ, ci să vă fie vouă ce este da, da, şi ce este nu, nu, ca să nu cădeţi sub judecată.
 
-##### 5:13
+##### 5,13
 Este vreunul dintre voi în suferinţă? Să se roage. Este cineva cu inimă bună? Să cânte psalmi.
 
-##### 5:14
+##### 5,14
 Este cineva bolnav între voi? Să cheme preoţii Bisericii şi să se roage pentru el, ungându-l cu untdelemn, în numele Domnului.
 
-##### 5:15
+##### 5,15
 Şi rugăciunea credinţei va mântui pe cel bolnav şi Domnul îl va ridica, şi de va fi făcut păcate se vor ierta lui.
 
-##### 5:16
+##### 5,16
 Mărturisiţi-vă deci unul altuia păcatele şi vă rugaţi unul pentru altul, ca să vă vindecaţi, că mult poate rugăciunea stăruitoare a dreptului.
 
-##### 5:17
+##### 5,17
 Ilie era om, cu slăbiciuni asemenea nouă, dar cu rugăciune s-a rugat ca să nu plouă şi nu a plouat trei ani şi şase luni.
 
-##### 5:18
+##### 5,18
 Şi iarăşi s-a rugat şi cerul a dat ploaie şi pământul a odrăslit roada sa.
 
-##### 5:19
+##### 5,19
 Fraţii mei, dacă vreunul va rătăci de la adevăr şi-l va întoarce cineva,
 
-##### 5:20
+##### 5,20
 Să ştie că cel ce a întors pe păcătos de la rătăcirea căii lui îşi va mântui sufletul din moarte şi va acoperi mulţime de păcate.
 

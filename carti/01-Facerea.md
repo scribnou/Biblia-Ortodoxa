@@ -2,4749 +2,4749 @@
 
 ## Facerea - 1 - *Facerea lumii*
 
-##### 1:1
+##### 1,1
 La început a făcut Dumnezeu cerul şi pământul.
 
-##### 1:2
+##### 1,2
 Şi pământul era netocmit şi gol. Întuneric era deasupra adâncului şi Duhul lui Dumnezeu Se purta pe deasupra apelor.
 
-##### 1:3
+##### 1,3
 Şi a zis Dumnezeu: «Să fie lumină!». Şi a fost lumină.
 
-##### 1:4
+##### 1,4
 Şi a văzut Dumnezeu că este bună lumina, şi a despărţit Dumnezeu lumina de întuneric.
 
-##### 1:5
+##### 1,5
 Lumina a numit-o Dumnezeu ziuă, iar întunericul l-a numit noapte. Şi a fost seară şi a fost dimineaţă: ziua întâi.
 
-##### 1:6
+##### 1,6
 Şi a zis Dumnezeu: «Să fie o tărie prin mijlocul apelor şi să despartă ape de ape!». Şi a fost aşa.
 
-##### 1:7
+##### 1,7
 A făcut Dumnezeu tăria şi a despărţit Dumnezeu apele cele de sub tărie de apele cele de deasupra tăriei.
 
-##### 1:8
+##### 1,8
 Tăria a numit-o Dumnezeu cer. Şi a văzut Dumnezeu că este bine. Şi a fost seară şi a fost dimineaţă: ziua a doua.
 
-##### 1:9
+##### 1,9
 Şi a zis Dumnezeu: «Să se adune apele cele de sub cer la un loc şi să se arate uscatul!». Şi a fost aşa. Și s-au adunat apele cele de sub cer la locurile lor şi s-a arătat uscatul.
 
-##### 1:10
+##### 1,10
 Uscatul l-a numit Dumnezeu pământ, iar adunarea apelor a numit-o mări. Şi a văzut Dumnezeu că este bine.
 
-##### 1:11
+##### 1,11
 Apoi a zis Dumnezeu: «Să dea pământul din sine verdeaţă: iarbă, cu sămânţă într-însa, după felul şi asemănarea ei, şi pomi roditori, care să dea rod cu sămânţă în sine, după fel, pe pământ!». Şi a fost aşa.
 
-##### 1:12
+##### 1,12
 Pământul a dat din sine verdeaţă: iarbă, care face sămânţă, după felul şi după asemănarea ei, şi pomi roditori, cu sămânţă, după fel, pe pământ. Şi a văzut Dumnezeu că este bine.
 
-##### 1:13
+##### 1,13
 Şi a fost seară şi a fost dimineaţă: ziua a treia.
 
-##### 1:14
+##### 1,14
 Şi a zis Dumnezeu: «Să fie luminători pe tăria cerului, ca să lumineze pe pământ, să despartă ziua de noapte şi să fie semne ca să deosebească anotimpurile, zilele şi anii,
 
-##### 1:15
+##### 1,15
 Şi să slujească drept luminători pe tăria cerului, ca să lumineze pământul». Şi a fost aşa.
 
-##### 1:16
+##### 1,16
 A făcut Dumnezeu cei doi luminători mari: luminătorul cel mai mare pentru cârmuirea zilei şi luminătorul cel mai mic pentru cârmuirea nopţii, şi stelele.
 
-##### 1:17
+##### 1,17
 Şi le-a pus Dumnezeu pe tăria cerului, ca să lumineze pământul,
 
-##### 1:18
+##### 1,18
 Să cârmuiască ziua şi noaptea şi să despartă lumina de întuneric. Şi a văzut Dumnezeu că este bine.
 
-##### 1:19
+##### 1,19
 Şi a fost seară şi a fost dimineaţă: ziua a patra.
 
-##### 1:20
+##### 1,20
 Apoi a zis Dumnezeu: «Să mişune apele de vietăţi, fiinţe cu viaţă în ele şi păsări să zboare pe pământ, pe întinsul tăriei cerului!». Şi a fost aşa.
 
-##### 1:21
+##### 1,21
 A făcut Dumnezeu animalele cele mari din ape şi toate fiinţele vii, care mişună în ape, unde ele se prăsesc după felul lor, şi toate păsările înaripate după felul lor. Şi a văzut Dumnezeu că este bine.
 
-##### 1:22
+##### 1,22
 Şi le-a binecuvântat Dumnezeu şi a zis: «Prăsiţi-vă şi vă înmulţiţi şi umpleţi apele mărilor şi păsările să se înmulţească pe pământ!».
 
-##### 1:23
+##### 1,23
 Şi a fost seară şi a fost dimineaţă: ziua a cincea.
 
-##### 1:24
+##### 1,24
 Apoi a zis Dumnezeu: «Să scoată pământul fiinţe vii, după felul lor: animale, târâtoare şi fiare sălbatice după felul lor». Şi a fost aşa.
 
-##### 1:25
+##### 1,25
 A făcut Dumnezeu fiarele sălbatice după felul lor, şi animalele domestice după felul lor, şi toate târâtoarele pământului după felul lor. Şi a văzut Dumnezeu că este bine.
 
-##### 1:26
+##### 1,26
 Şi a zis Dumnezeu: «Să facem om după chipul şi după asemănarea Noastră, ca să stăpânească peştii mării, păsările cerului, animalele domestice, toate vietăţile ce se târăsc pe pământ şi tot pământul!».
 
-##### 1:27
+##### 1,27
 Şi a făcut Dumnezeu pe om după chipul Său; după chipul lui Dumnezeu l-a făcut; a făcut bărbat şi femeie.
 
-##### 1:28
+##### 1,28
 Şi Dumnezeu i-a binecuvântat, zicând: «Creşteţi şi vă înmulţiţi şi umpleţi pământul şi-l supuneţi; şi stăpâniţi peste peştii mării, peste păsările cerului, peste toate animalele, peste toate vietăţile ce se mişcă pe pământ şi peste tot pământul!».
 
-##### 1:29
+##### 1,29
 Apoi a zis Dumnezeu: «Iată, vă dau toată iarba ce face sămânţă de pe toată faţa pământului şi tot pomul ce are rod cu sămânţă în el. Acestea vor fi hrana voastră.
 
-##### 1:30
+##### 1,30
 Iar tuturor fiarelor pământului şi tuturor păsărilor cerului şi tuturor vietăţilor ce se mişcă pe pământ, care au în ele suflare de viață, le dau toată iarba verde spre hrană». Şi a fost aşa.
 
-##### 1:31
+##### 1,31
 Şi a privit Dumnezeu toate câte a făcut şi iată erau bune foarte. Şi a fost seară şi a fost dimineaţă: ziua a şasea.
 
 
 ## Facerea - 2 - *Sfințirea zilei a șaptea. Așezarea omului în rai. Prima familie*
 
-##### 2:1
+##### 2,1
 Aşa s-au făcut cerul şi pământul şi toată oştirea lor.
 
-##### 2:2
+##### 2,2
 Şi a sfârşit Dumnezeu în ziua a şasea lucrarea Sa, pe care a făcut-o; iar în ziua a şaptea S-a odihnit de toate lucrurile Sale, pe care le-a făcut.
 
-##### 2:3
+##### 2,3
 Şi a binecuvântat Dumnezeu ziua a şaptea şi a sfinţit-o, pentru că într-însa S-a odihnit de toate lucrurile Sale, pe care le-a făcut şi le-a pus în rânduială.
 
-##### 2:4
+##### 2,4
 Iată obârşia cerului şi a pământului de la facerea lor, din ziua când Domnul Dumnezeu a făcut cerul şi pământul.
 
-##### 2:5
+##### 2,5
 Pe câmp nu se afla niciun copăcel, iar iarba de pe el nu începuse a odrăsli, pentru că Domnul Dumnezeu nu trimisese încă ploaie pe pământ şi nu era nimeni ca să lucreze pământul.
 
-##### 2:6
+##### 2,6
 Ci numai abur ieşea din pământ şi umezea toată faţa pământului.
 
-##### 2:7
+##### 2,7
 Atunci, luând Domnul Dumnezeu ţărână din pământ, a făcut pe om şi a suflat în faţa lui suflare de viaţă şi s-a făcut omul fiinţă vie.
 
-##### 2:8
+##### 2,8
 Apoi Domnul Dumnezeu a sădit o grădină în Eden, spre răsărit, şi a pus acolo pe omul pe care-l zidise.
 
-##### 2:9
+##### 2,9
 Şi a făcut Domnul Dumnezeu să răsară din pământ tot soiul de pomi, plăcuţi la vedere şi cu roade bune de mâncat; iar în mijlocul raiului era pomul vieţii şi pomul cunoştinţei binelui şi răului.
 
-##### 2:10
+##### 2,10
 Şi din Eden ieşea un râu, care uda raiul, iar de acolo se împărţea în patru braţe.
 
-##### 2:11
+##### 2,11
 Numele unuia era Fison. Acesta înconjură toată ţara Havila, în care se află aur.
 
-##### 2:12
+##### 2,12
 Aurul din țara aceea este bun; tot acolo se găseşte bdeliu şi piatra de onix.
 
-##### 2:13
+##### 2,13
 Numele râului al doilea este Gihon. Acesta înconjură toată ţara Cuş.
 
-##### 2:14
+##### 2,14
 Numele râului al treilea este Tigru. Acesta curge prin fața Asiriei; iar râul al patrulea este Eufratul.
 
-##### 2:15
+##### 2,15
 Şi a luat Domnul Dumnezeu pe omul pe care-l făcuse şi l-a pus în grădina cea din Eden, ca s-o lucreze şi s-o păzească.
 
-##### 2:16
+##### 2,16
 A dat apoi Domnul Dumnezeu lui Adam poruncă şi a zis: «Din toţi pomii din rai poţi să mănânci,
 
-##### 2:17
+##### 2,17
 Iar din pomul cunoştinţei binelui şi răului să nu mănânci, căci, în ziua în care vei mânca din el, vei muri negreşit!».
 
-##### 2:18
+##### 2,18
 Şi a zis Domnul Dumnezeu: «Nu este bine să fie omul singur; să-i facem ajutor potrivit pentru el».
 
-##### 2:19
+##### 2,19
 Şi Domnul Dumnezeu, Care făcuse din pământ toate fiarele câmpului şi toate păsările cerului, le-a adus la Adam, ca să vadă cum le va numi; aşa ca toate fiinţele vii să se numească precum le va numi Adam.
 
-##### 2:20
+##### 2,20
 Şi a pus Adam nume tuturor animalelor şi tuturor păsărilor cerului şi tuturor fiarelor sălbatice; dar pentru Adam nu s-a găsit ajutor de potriva lui.
 
-##### 2:21
+##### 2,21
 Atunci a adus Domnul Dumnezeu asupra lui Adam somn greu; şi, dacă a adormit, a luat una din coastele lui şi a plinit locul ei cu carne.
 
-##### 2:22
+##### 2,22
 Iar coasta luată din Adam a făcut-o Domnul Dumnezeu femeie şi a adus-o la Adam.
 
-##### 2:23
+##### 2,23
 Şi a zis Adam: «Iată aceasta-i os din oasele mele şi carne din carnea mea; ea se va numi femeie, pentru că este luată din bărbatul său.
 
-##### 2:24
+##### 2,24
 De aceea va lăsa omul pe tatăl său şi pe mama sa şi se va uni cu femeia sa şi vor fi amândoi un trup».
 
-##### 2:25
+##### 2,25
 Adam şi femeia lui erau amândoi goi şi nu se ruşinau.
 
 
 ## Facerea - 3 - *Căderea strămoșilor în păcat. Pedeapsa. Făgăduința lui Mesia*
 
-##### 3:1
+##### 3,1
 Şarpele însă era cel mai şiret dintre toate fiarele de pe pământ, pe care le făcuse Domnul Dumnezeu. Şi a zis şarpele către femeie: «Dumnezeu a zis El, oare, să nu mâncaţi roade din orice pom din rai?».
 
-##### 3:2
+##### 3,2
 Iar femeia a zis către şarpe: «Roade din pomii raiului putem să mâncăm;
 
-##### 3:3
+##### 3,3
 Numai din rodul pomului celui din mijlocul raiului ne-a zis Dumnezeu: «Să nu mâncaţi din el, nici să vă atingeţi de el, ca să nu muriţi!».
 
-##### 3:4
+##### 3,4
 Atunci şarpele a zis către femeie: «Nu, nu veţi muri!
 
-##### 3:5
+##### 3,5
 Dar Dumnezeu ştie că în ziua în care veţi mânca din el vi se vor deschide ochii şi veţi fi ca Dumnezeu, cunoscând binele şi răul».
 
-##### 3:6
+##### 3,6
 De aceea femeia, socotind că rodul pomului este bun de mâncat şi plăcut ochilor la vedere şi vrednic de dorit, pentru că dă ştiinţă, a luat din el şi a mâncat şi a dat bărbatului său şi a mâncat şi el.
 
-##### 3:7
+##### 3,7
 Atunci li s-au deschis ochii la amândoi şi au cunoscut că erau goi, şi au cusut frunze de smochin şi şi-au făcut acoperăminte.
 
-##### 3:8
+##### 3,8
 Iar când au auzit glasul Domnului Dumnezeu, Care umbla prin rai, în răcoarea serii, s-au ascuns Adam şi femeia lui de faţa Domnului Dumnezeu printre pomii raiului.
 
-##### 3:9
+##### 3,9
 Şi a strigat Domnul Dumnezeu pe Adam şi i-a zis: «Adame, unde eşti?».
 
-##### 3:10
+##### 3,10
 Răspuns-a acesta: «Am auzit glasul Tău în rai şi m-am temut, căci sunt gol, şi m-am ascuns».
 
-##### 3:11
+##### 3,11
 Şi i-a zis Dumnezeu: «Cine ți-a spus că eşti gol? Nu cumva ai mâncat din pomul din care ți-am poruncit să nu mănânci?».
 
-##### 3:12
+##### 3,12
 Zis-a Adam: «Femeia pe care mi-ai dat-o să fie cu mine, aceea mi-a dat din pom şi am mâncat».
 
-##### 3:13
+##### 3,13
 Şi a zis Domnul Dumnezeu către femeie: «Pentru ce ai făcut aceasta?». Iar femeia a zis: «Şarpele m-a amăgit şi eu am mâncat».
 
-##### 3:14
+##### 3,14
 Zis-a Domnul Dumnezeu către şarpe: «Pentru că ai făcut aceasta, blestemat să fii între toate animalele şi între toate fiarele câmpului; pe pântecele tău să te târăşti şi ţărână să mănânci în toate zilele vieţii tale!
 
-##### 3:15
+##### 3,15
 Duşmănie voi pune între tine şi între femeie, între sămânţa ta şi sămânţa ei; aceasta îţi va zdrobi capul, iar tu îi vei înţepa călcâiul».
 
-##### 3:16
+##### 3,16
 Iar femeii i-a zis: «Voi înmulţi mereu necazurile tale, mai ales în vremea sarcinii tale; în dureri vei naşte copii; atrasă vei fi către bărbatul tău şi el te va stăpâni».
 
-##### 3:17
+##### 3,17
 Iar lui Adam i-a zis: «Pentru că ai ascultat vorba femeii tale şi ai mâncat din pomul din care ţi-am poruncit: «Să nu mănânci», blestemat va fi pământul pentru tine! Cu osteneală să te hrăneşti din el în toate zilele vieţii tale!
 
-##### 3:18
+##### 3,18
 Spini şi pălămidă îţi va rodi el şi te vei hrăni cu iarba câmpului!
 
-##### 3:19
+##### 3,19
 În sudoarea feței tale îţi vei mânca pâinea ta, până te vei întoarce în pământul din care eşti luat; căci pământ eşti şi în pământ te vei întoarce».
 
-##### 3:20
+##### 3,20
 Şi a pus Adam femeii sale numele Eva, adică viaţă, pentru că ea era să fie mama tuturor celor vii.
 
-##### 3:21
+##### 3,21
 Apoi a făcut Domnul Dumnezeu lui Adam şi femeii lui îmbrăcăminte de piele şi i-a îmbrăcat.
 
-##### 3:22
+##### 3,22
 Şi a zis Domnul Dumnezeu: «Iată, Adam s-a făcut ca unul dintre Noi, cunoscând binele şi răul. Şi acum nu cumva să-şi întindă mâna şi să ia roade din pomul vieţii, să mănânce şi să trăiască în veci!...».
 
-##### 3:23
+##### 3,23
 De aceea l-a scos Domnul Dumnezeu din grădina cea din Eden, ca să lucreze pământul, din care fusese luat.
 
-##### 3:24
+##### 3,24
 Şi izgonind pe Adam, l-a aşezat în preajma grădinii celei din Eden şi a pus heruvimi şi sabie de flacără vâlvâitoare, să păzească drumul către pomul vieţii.
 
 
 ## Facerea - 4 - *Cain și Abel. Urmașii lor*
 
-##### 4:1
+##### 4,1
 După aceea a cunoscut Adam pe Eva, femeia sa, şi ea, zămislind, a născut pe Cain şi a zis: «Am dobândit om de la Dumnezeu».
 
-##### 4:2
+##### 4,2
 Apoi a mai născut pe Abel, fratele lui Cain. Abel a fost păstor de oi, iar Cain lucrător de pământ.
 
-##### 4:3
+##### 4,3
 Dar după un timp, Cain a adus jertfă lui Dumnezeu din roadele pământului.
 
-##### 4:4
+##### 4,4
 Şi a adus şi Abel din cele întâi-născute ale oilor sale şi din grăsimea lor. Şi a căutat Domnul spre Abel şi spre darurile lui,
 
-##### 4:5
+##### 4,5
 Iar spre Cain şi spre darurile lui n-a căutat. Şi s-a întristat Cain tare şi faţa lui era posomorâtă.
 
-##### 4:6
+##### 4,6
 Atunci a zis Domnul Dumnezeu către Cain: «Pentru ce te-ai întristat şi pentru ce s-a posomorât fața ta?
 
-##### 4:7
+##### 4,7
 Când faci bine, oare nu-ţi este faţa senină? Iar de nu faci bine, păcatul bate la uşă şi caută să te târască, dar tu biruieşte-l!».
 
-##### 4:8
+##### 4,8
 După aceea Cain a zis către Abel, fratele său: «Să ieşim la câmp!». Iar când erau ei în câmpie, Cain s-a aruncat asupra lui Abel, fratele său, şi l-a omorât.
 
-##### 4:9
+##### 4,9
 Atunci a zis Domnul Dumnezeu către Cain: «Unde este Abel, fratele tău?». Iar el a răspuns: «Nu ştiu! Au doară eu sunt păzitorul fratelui meu?».
 
-##### 4:10
+##### 4,10
 Și a zis Domnul: «Ce ai făcut? Glasul sângelui fratelui tău strigă către Mine din pământ.
 
-##### 4:11
+##### 4,11
 Şi acum eşti blestemat de pământul care şi-a deschis gura sa, ca să primească sângele fratelui tău din mâna ta.
 
-##### 4:12
+##### 4,12
 Când vei lucra pământul, acesta nu-şi va mai da roadele sale ţie; zbuciumat şi fugar vei fi tu pe pământ».
 
-##### 4:13
+##### 4,13
 Şi a zis Cain către Domnul Dumnezeu: «Pedeapsa mea este mai mare decât aş putea-o purta.
 
-##### 4:14
+##### 4,14
 De mă izgoneşti acum din pământul acesta, mă voi ascunde de la faţa Ta şi voi fi zbuciumat şi fugar pe pământ, şi oricine mă va întâlni, mă va ucide».
 
-##### 4:15
+##### 4,15
 Şi i-a zis Domnul Dumnezeu: «Nu aşa, ci tot cel ce va ucide pe Cain înşeptit se va pedepsi». Şi a pus Domnul Dumnezeu semn lui Cain, ca tot cel care îl va întâlni să nu-l omoare.
 
-##### 4:16
+##### 4,16
 Şi s-a dus Cain de la faţa lui Dumnezeu şi a locuit în ţinutul Nod, la răsărit de Eden.
 
-##### 4:17
+##### 4,17
 După aceea a cunoscut Cain pe femeia sa şi ea, zămislind, a născut pe Enoh. Apoi a zidit Cain o cetate şi a numit-o, după numele fiului său, Enoh.
 
-##### 4:18
+##### 4,18
 Iar lui Enoh i s-a născut Irad; lui Irad i s-a născut Maleleil; lui Maleleil i s-a născut Matusal, iar lui Matusal i s-a născut Lameh.
 
-##### 4:19
+##### 4,19
 Lameh şi-a luat două femei: numele uneia era Ada şi numele celeilalte era Sela.
 
-##### 4:20
+##### 4,20
 Ada a născut pe Iabal; acesta a fost tatăl celor ce trăiesc în corturi, la turme.
 
-##### 4:21
+##### 4,21
 Fratele lui se numea Iubal; acesta este tatăl tuturor celor ce cântă din chitară şi din cimpoi.
 
-##### 4:22
+##### 4,22
 Sela a născut şi ea pe Tubalcain, care a fost făurar de unelte de aramă şi de fier. Şi sora lui se chema Noema.
 
-##### 4:23
+##### 4,23
 Şi a zis Lameh către femeile sale: «Ada şi Sela, ascultaţi glasul meu! Femeile lui Lameh, luaţi aminte la cuvintele mele: Am ucis un om pentru rana mea şi un tânăr pentru vânătaia mea.
 
-##### 4:24
+##### 4,24
 Dacă pentru Cain va fi răzbunarea de şapte ori, apoi pentru Lameh de şaptezeci de ori câte şapte!».
 
-##### 4:25
+##### 4,25
 Adam a cunoscut iarăşi pe Eva, femeia sa, şi ea, zămislind, a născut un fiu şi i-a pus numele Set, pentru că şi-a zis: «Mi-a dat Dumnezeu alt fiu în locul lui Abel, pe care l-a ucis Cain».
 
-##### 4:26
+##### 4,26
 Lui Set de asemenea i s-a născut un fiu şi i-a pus numele Enos. Atunci au început oamenii a chema numele Domnului Dumnezeu.
 
 
 ## Facerea - 5 - *Neamurile patriarhilor de la Adam până la Noe*
 
-##### 5:1
+##### 5,1
 Iată acum cartea neamului lui Adam. Când a făcut Dumnezeu pe Adam, l-a făcut după chipul lui Dumnezeu.
 
-##### 5:2
+##### 5,2
 Bărbat şi femeie a făcut şi i-a binecuvântat şi le-a pus numele: Om, în ziua în care i-a făcut.
 
-##### 5:3
+##### 5,3
 Adam a trăit două sute treizeci de ani şi atunci i s-a născut un fiu după asemănarea sa şi, după chipul său şi i-a pus numele Set.
 
-##### 5:4
+##### 5,4
 Zilele pe care le-a trăit Adam după naşterea lui Set au fost şapte sute de ani şi i s-au născut fii şi fiice.
 
-##### 5:5
+##### 5,5
 Iar de toate, zilele vieţii lui Adam au fost nouă sute treizeci de ani şi apoi a murit.
 
-##### 5:6
+##### 5,6
 Set a trăit două sute cinci ani şi i s-a născut Enos.
 
-##### 5:7
+##### 5,7
 După naşterea lui Enos, Set a mai trăit şapte sute şapte ani, şi i s-au născut fii şi fiice.
 
-##### 5:8
+##### 5,8
 Iar de toate, zilele lui Set au fost nouă sute doisprezece ani şi apoi a murit.
 
-##### 5:9
+##### 5,9
 Enos a trăit o sută nouăzeci de ani şi atunci i s-a născut Cainan.
 
-##### 5:10
+##### 5,10
 După naşterea lui Cainan, Enos a mai trăit şapte sute cincisprezece ani şi i s-au născut fii şi fiice.
 
-##### 5:11
+##### 5,11
 Iar de toate, zilele lui Enos au fost nouă sute cinci ani şi apoi a murit.
 
-##### 5:12
+##### 5,12
 Cainan a trăit o sută şaptezeci de ani şi atunci i s-a născut Maleleil.
 
-##### 5:13
+##### 5,13
 După naşterea lui Maleleil, Cainan a mai trăit şapte sute patruzeci de ani şi i s-au născut fii şi fiice.
 
-##### 5:14
+##### 5,14
 Iar de toate, zilele lui Cainan au fost nouă sute zece ani şi apoi a murit.
 
-##### 5:15
+##### 5,15
 Maleleil a trăit o sută şaizeci şi cinci de ani şi atunci i s-a născut Iared.
 
-##### 5:16
+##### 5,16
 După naşterea lui Iared, Maleleil a mai trăit şapte sute treizeci de ani şi i s-au născut fii şi fiice.
 
-##### 5:17
+##### 5,17
 Iar de toate, zilele lui Maleleil au fost opt sute nouăzeci şi cinci de ani şi apoi a murit.
 
-##### 5:18
+##### 5,18
 Iared a trăit o sută şaizeci şi doi de ani şi atunci i s-a născut Enoh.
 
-##### 5:19
+##### 5,19
 După naşterea lui Enoh, Iared a mai trăit opt sute de ani şi i s-au născut fii şi fiice.
 
-##### 5:20
+##### 5,20
 Iar de toate, zilele lui Iared au fost nouă sute şaizeci şi doi de ani şi apoi a murit.
 
-##### 5:21
+##### 5,21
 Enoh a trăit o sută şaizeci şi cinci de ani, şi atunci i s-a născut Matusalem.
 
-##### 5:22
+##### 5,22
 Şi a umblat Enoh înaintea lui Dumnezeu, după naşterea lui Matusalem, două sute de ani şi i s-au născut fii şi fiice.
 
-##### 5:23
+##### 5,23
 Iar de toate, zilele lui Enoh au fost trei sute şaizeci şi cinci de ani.
 
-##### 5:24
+##### 5,24
 Şi a plăcut Enoh lui Dumnezeu şi apoi nu s-a mai aflat, pentru că l-a mutat Dumnezeu.
 
-##### 5:25
+##### 5,25
 Matusalem a trăit o sută optzeci şi şapte de ani şi atunci i s-a născut Lameh.
 
-##### 5:26
+##### 5,26
 După naşterea lui Lameh, Matusalem a mai trăit şapte sute optzeci şi doi de ani şi i s-au născut fii şi fiice.
 
-##### 5:27
+##### 5,27
 Iar de toate, zilele lui Matusalem, pe care le-a trăit, au fost nouă sute şaizeci şi nouă de ani şi apoi a murit.
 
-##### 5:28
+##### 5,28
 Lameh a trăit o sută optzeci şi opt de ani şi atunci i s-a născut un fiu.
 
-##### 5:29
+##### 5,29
 Şi i-a pus numele Noe, zicând: «Acesta ne va mângâia în lucrul nostru şi în munca mâinilor noastre, la lucrarea pământului, pe care l-a blestemat Domnul Dumnezeu!».
 
-##### 5:30
+##### 5,30
 Şi a mai trăit Lameh, după naşterea lui Noe, cinci sute şaizeci şi cinci de ani şi i s-au născut fii şi fiice.
 
-##### 5:31
+##### 5,31
 Iar de toate, zilele lui Lameh au fost şapte sute cincizeci şi trei de ani şi apoi a murit.
 
-##### 5:32
+##### 5,32
 Noe era de cinci sute de ani, când i s-au născut trei feciori: Sem, Ham şi Iafet.
 
 
 ## Facerea - 6 - *Vestirea potopului. Facerea corăbiei*
 
-##### 6:1
+##### 6,1
 Iar după ce au început a se înmulţi oamenii pe pământ şi li s-au născut fiice,
 
-##### 6:2
+##### 6,2
 Fiii lui Dumnezeu, văzând că fiicele oamenilor sunt frumoase, şi-au ales dintre ele soţii, care pe cine a voit.
 
-##### 6:3
+##### 6,3
 Dar Domnul Dumnezeu a zis: «Nu va rămâne Duhul Meu pururea în oamenii aceştia, pentru că sunt numai trup. Deci zilele lor să mai fie o sută douăzeci de ani!».
 
-##### 6:4
+##### 6,4
 În vremea aceea s-au ivit pe pământ uriaşi, mai cu seamă de când fiii lui Dumnezeu începuseră a intra la fiicele oamenilor şi acestea începuseră a le naşte fii: aceştia sunt vestiţii viteji din vechime.
 
-##### 6:5
+##### 6,5
 Văzând însă Domnul Dumnezeu că răutatea oamenilor s-a mărit pe pământ şi că toate cugetele şi dorinţele inimii lor sunt îndreptate la rău în toate zilele,
 
-##### 6:6
+##### 6,6
 I-a părut rău şi s-a căit Dumnezeu că a făcut pe om pe pământ.
 
-##### 6:7
+##### 6,7
 Şi a zis Domnul: «Pierde-voi de pe faţa pământului pe omul pe care l-am făcut! De la om până la dobitoc şi de la târâtoare până la păsările cerului, tot voi pierde, căci Îmi pare rău că le-am făcut».
 
-##### 6:8
+##### 6,8
 Noe însă a aflat har înaintea Domnului Dumnezeu.
 
-##### 6:9
+##### 6,9
 Iată viaţa lui Noe: Noe era om drept şi neprihănit între oamenii timpului său şi mergea pe calea Domnului.
 
-##### 6:10
+##### 6,10
 Şi i s-au născut lui Noe trei fii: Sem, Ham şi Iafet.
 
-##### 6:11
+##### 6,11
 Pământul însă se stricase înaintea feţei lui Dumnezeu şi se umpluse pământul de silnicii.
 
-##### 6:12
+##### 6,12
 Şi a căutat Domnul Dumnezeu spre pământ şi iată era stricat, căci tot trupul se abătuse de la calea sa pe pământ.
 
-##### 6:13
+##### 6,13
 Atunci a zis Domnul Dumnezeu către Noe: «Sosit-a înaintea feţei Mele sfârşitul a tot omul, căci s-a umplut pământul de nedreptăţile lor, şi iată Eu îi voi pierde de pe pământ.
 
-##### 6:14
+##### 6,14
 Tu însă fă-ți o corabie de lemn de salcâm. În corabie să faci despărţituri şi smoleşte-o cu smoală pe dinăuntru şi pe din afară.
 
-##### 6:15
+##### 6,15
 Corabia însă să o faci aşa: lungimea corăbiei să fie de trei sute de coţi, lăţimea ei de cincizeci de coţi, iar înălţimea de treizeci de coţi.
 
-##### 6:16
+##### 6,16
 Să faci corăbiei o fereastră la un cot de la acoperiş, iar uşa corăbiei să o faci într-o parte a ei. De asemenea să faci într-însa trei rânduri de cămări: jos, la mijloc şi sus.
 
-##### 6:17
+##### 6,17
 Şi iată Eu voi aduce asupra pământului potop de apă, ca să pierd tot trupul de sub cer, în care este suflu de viaţă, şi tot ce este pe pământ va pieri.
 
-##### 6:18
+##### 6,18
 Iar cu tine voi face legământul Meu; şi vei intra în corabie tu şi împreună cu tine vor intra fiii tăi, femeia ta şi femeile fiilor tăi.
 
-##### 6:19
+##### 6,19
 Să intre în corabie din toate animalele, din toate târâtoarele, din toate fiarele şi din tot trupul, câte două, parte bărbătească şi parte femeiască, ca să rămână cu tine în viaţă.
 
-##### 6:20
+##### 6,20
 Din toate soiurile de păsări înaripate după fel, din toate soiurile de animale după fel şi din toate soiurile de târâtoare după fel, din toate să intre la tine câte două, parte bărbătească şi parte femeiască, ca să rămână în viață împreună cu tine.
 
-##### 6:21
+##### 6,21
 Iar tu ia cu tine din tot felul de mâncare, cu care vă hrăniţi; îngrijeşte-te ca să fie aceasta de mâncare pentru tine şi pentru acelea».
 
-##### 6:22
+##### 6,22
 Şi a început Noe lucrul şi precum îi poruncise Domnul Dumnezeu aşa a făcut.
 
 
 ## Facerea - 7 - *Potopul*
 
-##### 7:1
+##### 7,1
 După aceea a zis Domnul Dumnezeu lui Noe: «Intră în corabie, tu şi toată casa ta, căci în neamul acesta numai pe tine te-am văzut drept înaintea Mea.
 
-##### 7:2
+##### 7,2
 Să iei cu tine din toate animalele curate câte şapte perechi, parte bărbătească şi parte femeiască, iar din animalele necurate câte o pereche, parte bărbătească şi parte femeiască.
 
-##### 7:3
+##### 7,3
 De asemenea şi din păsările cerului să iei: din cele curate câte şapte perechi, parte bărbătească şi parte femeiască, iar din toate păsările necurate câte o pereche, parte bărbătească şi parte femeiască, ca să le păstrezi soiul pentru tot pământul.
 
-##### 7:4
+##### 7,4
 Căci peste şapte zile Eu voi vărsa ploaie pe pământ, patruzeci de zile şi patruzeci de nopţi şi am să pierd de pe faţa pământului toate făpturile câte am făcut».
 
-##### 7:5
+##### 7,5
 Şi a făcut Noe toate câte i-a poruncit Domnul Dumnezeu.
 
-##### 7:6
+##### 7,6
 Noe însă, când a venit asupra pământului potopul de apă, era de şase sute de ani.
 
-##### 7:7
+##### 7,7
 Şi a intrat Noe în corabie şi împreună cu el au intrat fiii lui, femeia lui şi femeile fiilor lui, ca să scape de apele potopului.
 
-##### 7:8
+##### 7,8
 Din păsările curate şi din păsările necurate, din animalele curate şi din animalele necurate, din fiare şi din toate cele ce se mişcă pe pământ
 
-##### 7:9
+##### 7,9
 Au intrat la Noe în corabie perechi, perechi, parte bărbătească şi parte femeiască, cum poruncise Dumnezeu lui Noe.
 
-##### 7:10
+##### 7,10
 Iar după şapte zile au venit asupra pământului apele potopului.
 
-##### 7:11
+##### 7,11
 În anul şase sute al vieţii lui Noe, în luna a doua, în ziua a douăzeci şi şaptea a lunii acesteia, chiar în acea zi, s-au desfăcut toate izvoarele adâncului celui mare şi s-au deschis jgheaburile cerului;
 
-##### 7:12
+##### 7,12
 Şi a plouat pe pământ patruzeci de zile şi patruzeci de nopţi.
 
-##### 7:13
+##### 7,13
 În ziua aceasta a intrat Noe în corabie şi împreună cu dânsul au intrat Sem, Ham şi Iafet, fiii lui Noe, femeia lui Noe şi cele trei femei ale fiilor lui.
 
-##### 7:14
+##### 7,14
 Din toate soiurile de fiare de pe pământ, din toate soiurile de animale, din toate soiurile de vietăţi ce mişunau pe pământ, din toate soiurile de zburătoare, din toate păsările, din toate înaripatele
 
-##### 7:15
+##### 7,15
 Şi din tot trupul, în care se afla duh de viaţă, au intrat cu Noe în corabie, perechi, perechi, parte bărbătească şi parte femeiască.
 
-##### 7:16
+##### 7,16
 Şi cele ce au intrat cu Noe în corabie din tot trupul au intrat parte bărbătească şi parte femeiască, precum poruncise Dumnezeu lui Noe. Şi a închis Domnul Dumnezeu corabia pe din afară.
 
-##### 7:17
+##### 7,17
 Potopul a ţinut pe pământ patruzeci de zile şi patruzeci de nopţi şi s-a înmulţit apa şi a ridicat corabia şi aceasta s-a înălţat deasupra pământului.
 
-##### 7:18
+##### 7,18
 Şi a crescut apa mereu şi s-a înmulţit foarte tare pe pământ şi corabia se purta pe deasupra apei.
 
-##### 7:19
+##### 7,19
 Şi a sporit apa pe pământ atât de mult, încât a acoperit toţi munţii cei înalţi, care erau sub cer.
 
-##### 7:20
+##### 7,20
 Şi a acoperit apa toţi munţii cei înalţi, ridicându-se cu cincisprezece coţi mai sus de ei.
 
-##### 7:21
+##### 7,21
 Şi a murit tot trupul ce se mişca pe pământ: păsările, animalele, fiarele, toate vietăţile ce mişunau pe pământ şi toţi oamenii.
 
-##### 7:22
+##### 7,22
 Toate cele de pe uscat, câte aveau suflare de viață în nările lor, au murit.
 
-##### 7:23
+##### 7,23
 Şi aşa s-a stins toată fiinţa care se afla pe faţa a tot pământul, de la om până la dobitoc şi până la târâtoare şi până la păsările cerului, toate s-au stins de pe pământ, şi a rămas numai Noe şi ce era cu el în corabie.
 
-##### 7:24
+##### 7,24
 Iar apa a crescut mereu pe pământ, o sută cincizeci de zile.
 
 
 ## Facerea - 8 - *Încetarea potopului*
 
-##### 8:1
+##### 8,1
 Dar şi-a adus aminte Dumnezeu de Noe, de toate fiarele, de toate animalele, de toate păsările şi de toate vietăţile ce se mişcă, câte erau cu dânsul în corabie; şi a adus Dumnezeu vânt pe pământ şi a încetat apa de a mai creşte.
 
-##### 8:2
+##### 8,2
 Atunci s-au încuiat izvoarele adâncului şi jgheaburile cerului şi a încetat ploaia din cer.
 
-##### 8:3
+##### 8,3
 După o sută cincizeci de zile, a început a se scurge apa de pe pământ şi a se împuţina.
 
-##### 8:4
+##### 8,4
 Iar în luna a şaptea, în ziua a douăzeci şi şaptea a lunii acesteia, s-a oprit corabia pe Munţii Ararat.
 
-##### 8:5
+##### 8,5
 Apa a scăzut mereu până în luna a zecea; iar în ziua întâi a lunii a zecea s-au arătat vârfurile munţilor.
 
-##### 8:6
+##### 8,6
 După patruzeci de zile, a deschis Noe fereastra, pe care o făcuse la corabie,
 
-##### 8:7
+##### 8,7
 Şi a dat drumul corbului, ca să vadă de a scăzut apa pe pământ. Acesta, zburând, nu s-a mai întors până ce a secat apa de pe pământ.
 
-##### 8:8
+##### 8,8
 Apoi, după el a trimis porumbelul, ca să vadă de s-a scurs apa de pe pământ.
 
-##### 8:9
+##### 8,9
 Porumbelul însă, negăsind loc de odihnă pentru picioarele sale, s-a întors la el, în corabie; căci era încă apă pe toată faţa pământului. Şi a întins Noe mâna şi l-a apucat şi l-a băgat la sine, în corabie.
 
-##### 8:10
+##### 8,10
 Şi aşteptând încă alte şapte zile, a dat iarăşi drumul porumbelului din corabie,
 
-##### 8:11
+##### 8,11
 Şi porumbelul s-a întors la el, spre seară, şi iată avea în ciocul său o ramură verde de măslin. Atunci a cunoscut Noe că s-a scurs apa de pe faţa pământului.
 
-##### 8:12
+##### 8,12
 Mai zăbovind încă alte şapte zile, iarăşi a dat drumul porumbelului şi el nu s-a mai întors.
 
-##### 8:13
+##### 8,13
 Iar în anul şase sute unu al vieţii lui Noe, în ziua întâi a lunii întâi, secând apa de pe pământ, a ridicat Noe acoperişul corăbiei şi a privit, şi iată se zbicise faţa pământului.
 
-##### 8:14
+##### 8,14
 Iar în luna a doua, la douăzeci şi şapte ale lunii acesteia, pământul era uscat.
 
-##### 8:15
+##### 8,15
 Atunci a grăit Domnul Dumnezeu lui Noe şi a zis:
 
-##### 8:16
+##### 8,16
 «Ieşi din corabie tu şi împreună cu tine femeia ta, fiii tăi şi femeile fiilor tăi.
 
-##### 8:17
+##### 8,17
 Scoate de asemenea împreună cu tine toate vietăţile, care sunt cu tine, şi tot trupul, de la păsări şi până la animale, şi toate vietăţile ce se mişcă pe pământ, ca să se împrăştie pe pământ, să se prăsească şi să se înmulţească pe pământ».
 
-##### 8:18
+##### 8,18
 Atunci a ieşit Noe din corabie; şi împreună cu el au ieşit fiii lui, femeia lui şi femeile fiilor lui;
 
-##### 8:19
+##### 8,19
 Toate fiarele, toate animalele, toate păsările şi toate câte se mişcă pe pământ, după felul lor, au ieşit din corabie.
 
-##### 8:20
+##### 8,20
 Apoi a făcut Noe un jertfelnic Domnului; şi a luat din animalele cele curate şi din toate păsările cele curate şi le-a adus ardere de tot pe jertfelnic.
 
-##### 8:21
+##### 8,21
 Iar Domnul Dumnezeu a mirosit mireasmă bună şi a zis Domnul Dumnezeu în inima Sa: «Am socotit să nu mai blestem pământul pentru faptele omului, pentru că cugetul inimii omului se pleacă la rău din tinereţile lui şi nu voi mai pierde toate vietăţile, cum am făcut.
 
-##### 8:22
+##### 8,22
 De acum, cât va trăi pământul, semănatul şi seceratul, frigul şi căldura, vara şi iarna, ziua şi noaptea nu vor mai înceta!».
 
 
 ## Facerea - 9 - *Legământul cu Noe. Curcubeul, semnul legământului*
 
-##### 9:1
+##### 9,1
 Şi a binecuvântat Dumnezeu pe Noe şi pe fiii lui şi le-a zis: «Naşteţi şi vă înmulţiţi şi umpleţi pământul şi-l stăpâniţi!
 
-##### 9:2
+##### 9,2
 Groază şi frică de voi să aibă toate fiarele pământului; toate păsările cerului, tot ce se mişcă pe pământ şi toţi peştii mării; căci toate acestea vi le-am dat la îndemână.
 
-##### 9:3
+##### 9,3
 Tot ce se mişcă şi ce trăieşte să vă fie de mâncare; toate vi le-am dat, ca şi iarba verde.
 
-##### 9:4
+##### 9,4
 Numai carne cu sângele ei, în care e viaţa ei, să nu mâncaţi.
 
-##### 9:5
+##### 9,5
 Căci Eu şi sângele vostru, în care e viaţa voastră, îl voi cere de la orice fiară; şi voi cere viaţa omului şi din mâna omului, din mâna fratelui său.
 
-##### 9:6
+##### 9,6
 De va vărsa cineva sânge omenesc, sângele aceluia de mână de om se va vărsa, căci Dumnezeu a făcut omul după chipul Său.
 
-##### 9:7
+##### 9,7
 Voi însă naşteţi şi vă înmulţiţi şi vă răspândiţi pe pământ şi-l stăpâniţi!».
 
-##### 9:8
+##### 9,8
 Şi a mai grăit Dumnezeu cu Noe şi cu fiii lui, care erau cu el, şi a zis:
 
-##### 9:9
+##### 9,9
 «Iată, Eu închei legământul Meu cu voi, cu urmaşii voştri.
 
-##### 9:10
+##### 9,10
 Şi cu tot sufletul viu, care este cu voi: cu păsările, cu animalele şi cu toate fiarele pământului, care sunt cu voi, cu toate vietăţile pământului câte au ieşit din corabie;
 
-##### 9:11
+##### 9,11
 Şi închei acest legământ cu voi, că nu voi mai pierde tot trupul cu apele potopului şi nu va mai fi potop, ca să pustiască pământul».
 
-##### 9:12
+##### 9,12
 Apoi a mai zis iarăşi Domnul Dumnezeu către Noe: «Iată, ca semn al legământului, pe care-l închei cu voi şi cu tot sufletul viu ce este cu voi din neam în neam şi de-a pururi,
 
-##### 9:13
+##### 9,13
 Pun curcubeul Meu în nori, ca să fie semn al legământului dintre Mine şi pământ.
 
-##### 9:14
+##### 9,14
 Când voi aduce nori deasupra pământului, se va arăta curcubeul Meu în nori,
 
-##### 9:15
+##### 9,15
 Şi-Mi voi aduce aminte de legământul Meu, pe care l-am încheiat cu voi şi cu tot sufletul viu şi cu tot trupul, şi nu va mai fi apa potop, spre pierzarea a toată făptura.
 
-##### 9:16
+##### 9,16
 Va fi deci curcubeul Meu în nori şi-l voi vedea, şi-Mi voi aduce aminte de legământul veşnic dintre Mine şi pământ şi tot sufletul viu din tot trupul ce este pe pământ!».
 
-##### 9:17
+##### 9,17
 Şi iarăşi a zis Dumnezeu către Noe: «Acesta este semnul legământului, pe care Eu l-am încheiat între Mine şi tot trupul care este pe pământ».
 
-##### 9:18
+##### 9,18
 Iar fiii lui Noe care au ieşit din corabie, erau: Sem, Ham şi Iafet. Iar Ham era tatăl lui Canaan.
 
-##### 9:19
+##### 9,19
 Aceştia sunt cei trei fii ai lui Noe şi din aceştia s-au înmulţit oamenii pe pământ.
 
-##### 9:20
+##### 9,20
 Atunci a început Noe să fie lucrător de pământ şi a sădit vie.
 
-##### 9:21
+##### 9,21
 A băut vin şi, îmbătându-se, s-a dezvelit în cortul său.
 
-##### 9:22
+##### 9,22
 Iar Ham, tatăl lui Canaan, a văzut goliciunea tatălui său şi, ieşind afară, a spus celor doi fraţi ai săi.
 
-##### 9:23
+##### 9,23
 Dar Sem şi Iafet au luat o haină şi, punând-o pe amândoi umerii lor, au intrat cu spatele înainte şi au acoperit goliciunea tatălui lor; şi feţele lor fiind întoarse înapoi, n-au văzut goliciunea tatălui lor.
 
-##### 9:24
+##### 9,24
 Trezindu-se Noe din ameţeala de vin şi aflând ce i-a făcut feciorul său cel mai tânăr,
 
-##### 9:25
+##### 9,25
 A zis: «Blestemat să fie Canaan! Robul robilor să fie la fraţii săi!».
 
-##### 9:26
+##### 9,26
 Apoi a zis: «Binecuvântat să fie Domnul Dumnezeul lui Sem; iar Canaan să-i fie rob!
 
-##### 9:27
+##### 9,27
 Să înmulţească Dumnezeu pe Iafet şi să se sălăşluiască acesta în corturile lui Sem, iar Canaan să-i fie slugă».
 
-##### 9:28
+##### 9,28
 Şi a mai trăit Noe după potop trei sute cincizeci de ani.
 
-##### 9:29
+##### 9,29
 Iar de toate, zilele lui Noe au fost nouă sute cincizeci de ani şi apoi a murit.
 
 
 ## Facerea - 10 - *Seminția și urmașii lui Noe*
 
-##### 10:1
+##### 10,1
 Iată spiţa neamului fiilor lui Noe: Sem, Ham şi Iafet, cărora li s-au născut fii după potop.
 
-##### 10:2
+##### 10,2
 Fii lui Iafet au fost: Gomer, Magog, Madai, Iavan, Tubal, Meşeh şi Tiras.
 
-##### 10:3
+##### 10,3
 Fii lui Gomer au fost: Aşchenaz, Rifat şi Togarma.
 
-##### 10:4
+##### 10,4
 Fii lui Iavan au fost: Elişa, Tarşiş, Chitim şi Dodanim.
 
-##### 10:5
+##### 10,5
 Din aceştia s-au format mulţime de popoare, care s-au aşezat în diferite ţări, fiecare după limba sa, după neamul său şi după naţia sa.
 
-##### 10:6
+##### 10,6
 Iar fiii lui Ham au fost: Cuş, Miţraim, Put şi Canaan.
 
-##### 10:7
+##### 10,7
 Fiii lui Cuş au fost: Şeba, Havila, Savta, Rama şi Sabteca. Fiii lui Rama au fost: Şeba şi Dedan.
 
-##### 10:8
+##### 10,8
 Cuş a mai născut de asemenea pe Nimrod; acesta a fost cel dintâi viteaz pe pământ.
 
-##### 10:9
+##### 10,9
 El a fost vânător vestit înaintea Domnului Dumnezeu; de aceea se şi zice: «Vânător vestit ca Nimrod înaintea Domnului Dumnezeu».
 
-##### 10:10
+##### 10,10
 Împărăţia lui, la început, o alcătuia: Babilonul, apoi Ereh, Acad şi Calne din ţinutul Senaar.
 
-##### 10:11
+##### 10,11
 Din pământul acela, el trecu în Asur, unde a zidit Ninive, cetatea Rehobot, Calah
 
-##### 10:12
+##### 10,12
 Şi Resen, între Ninive şi Calah. Aceasta e cetate mare.
 
-##### 10:13
+##### 10,13
 Din Miţraim s-au născut: Ludim, Anamim, Lehabim, Naftuhim,
 
-##### 10:14
+##### 10,14
 Patrusim, Casluhim – de unde au ieşit Filistenii – şi Caftorim.
 
-##### 10:15
+##### 10,15
 Din Canaan s-au născut: Sidon, întâiul-născut al său, apoi Het,
 
-##### 10:16
+##### 10,16
 Iebuseu, Amoreu, Ghergheseu,
 
-##### 10:17
+##### 10,17
 Heveu, Archeu, Sineu,
 
-##### 10:18
+##### 10,18
 Arvadeu, Țemareu şi Hamateu. Mai pe urmă neamurile canaaneiene s-au răspândit.
 
-##### 10:19
+##### 10,19
 Şi ţinuturile lor se întindeau de la Sidon, spre Gherara până la Gaza, iar de aici spre Sodoma, Gomora, Adma şi Țeboim până spre Lasa.
 
-##### 10:20
+##### 10,20
 Aceştia sunt fiii lui Ham, după familii, limbă, ţări şi după naţii.
 
-##### 10:21
+##### 10,21
 De asemenea i s-au născut fii şi lui Sem, tatăl tuturor fiilor lui Eber şi fratele mai mare al lui Iafet.
 
-##### 10:22
+##### 10,22
 Fiii lui Sem au fost: Elam, Asur, Arfaxad, Lud şi Aram.
 
-##### 10:23
+##### 10,23
 Iar fiii lui Aram au fost: Uţ, Hul, Gheter şi Maş.
 
-##### 10:24
+##### 10,24
 Lui Arfaxad i s-a născut Cainan; lui Cainan i s-a născut Şelah; lui Şelah i s-a născut Eber;
 
-##### 10:25
+##### 10,25
 Iar lui Eber i s-au născut doi fii: numele unuia era Peleg, pentru că în zilele lui s-a împărţit pământul, şi numele fratelui său era Ioctan.
 
-##### 10:26
+##### 10,26
 Lui Ioctan i s-au născut Almodad, Şalef, Haţarmavet şi Ierah;
 
-##### 10:27
+##### 10,27
 Hadoram, Uzal şi Dicla;
 
-##### 10:28
+##### 10,28
 Obal, Abimael şi Şeba;
 
-##### 10:29
+##### 10,29
 Ofir, Havila şi Iobab. Toţi aceştia au fost fiii lui Ioctan.
 
-##### 10:30
+##### 10,30
 Sălaşurile lor se întindeau de la Meşa spre Sefar, până la Muntele Răsăritului.
 
-##### 10:31
+##### 10,31
 Aceştia sunt fiii lui Sem după familii, după limbă, după ţări şi după naţii.
 
-##### 10:32
+##### 10,32
 Acestea sunt neamurile, care se trag din fiii lui Noe, după familii şi după naţii, şi dintr-înşii s-au răspândit popoarele pe pământ după potop.
 
 
 ## Facerea - 11 - *Turnul Babel. Amestecarea limbilor. Seminția lui Sem*
 
-##### 11:1
+##### 11,1
 În vremea aceea era în tot pământul o singură limbă şi un singur grai la toţi.
 
-##### 11:2
+##### 11,2
 Purcezând de la răsărit, oamenii au găsit în ţara Senaar un şes şi au descălecat acolo.
 
-##### 11:3
+##### 11,3
 Apoi au zis unul către altul: «Haidem să facem cărămizi şi să le ardem cu foc!». Şi au folosit cărămida în loc de piatră, iar smoala în loc de var.
 
-##### 11:4
+##### 11,4
 Şi au zis iarăşi: «Haidem să ne facem un oraş şi un turn al cărui vârf să ajungă la cer şi să ne facem faimă înainte de a ne împrăştia pe faţa a tot pământul!».
 
-##### 11:5
+##### 11,5
 Atunci S-a pogorât Domnul să vadă cetatea şi turnul pe care-l zideau fiii oamenilor.
 
-##### 11:6
+##### 11,6
 Şi a zis Domnul: «Iată, toţi sunt de un neam şi o limbă au şi iată ce s-au apucat să facă şi nu se vor opri de la ceea ce şi-au pus în gând să facă.
 
-##### 11:7
+##### 11,7
 Haidem, dar, să Ne pogorâm şi să amestecăm limbile lor, ca să nu se mai înţeleagă unul cu altul».
 
-##### 11:8
+##### 11,8
 Şi i-a împrăştiat Domnul de acolo în tot pământul şi au încetat de a mai zidi cetatea şi turnul.
 
-##### 11:9
+##### 11,9
 De aceea s-a numit cetatea aceea Babilon, pentru că acolo a amestecat Domnul limbile a tot pământul şi de acolo i-a împrăştiat Domnul pe toată faţa pământului.
 
-##### 11:10
+##### 11,10
 Iată acum istoria vieţii neamului lui Sem: Sem era de o sută de ani, când i s-a născut Arfaxad, la doi ani după potop.
 
-##### 11:11
+##### 11,11
 După naşterea lui Arfaxad, Sem a mai trăit cinci sute de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:12
+##### 11,12
 Arfaxad a trăit o sută treizeci şi cinci de ani şi atunci i s-a născut Cainan. După naşterea lui Cainan, Arfaxad a mai trăit trei sute treizeci de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:13
+##### 11,13
 Cainan a trăit o sută treizeci de ani şi atunci i s-a născut Şelah. După naşterea lui Şelah, Cainan a mai trăit trei sute treizeci de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:14
+##### 11,14
 Şelah a trăit o sută treizeci de ani şi atunci i s-a născut Eber.
 
-##### 11:15
+##### 11,15
 Iar după naşterea lui Eber, Şelah a mai trăit trei sute treizeci de ani, şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:16
+##### 11,16
 Eber a trăit o sută treizeci şi patru de ani şi atunci i s-a născut Peleg.
 
-##### 11:17
+##### 11,17
 Iar după naşterea lui Peleg, Eber a mai trăit trei sute şaptezeci de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:18
+##### 11,18
 Peleg a trăit o sută treizeci de ani şi atunci i s-a născut Ragav.
 
-##### 11:19
+##### 11,19
 Iar după naşterea lui Ragav, Peleg a mai trăit două sute nouă ani, şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:20
+##### 11,20
 Ragav a trăit o sută treizeci şi doi de ani şi atunci i s-a născut Serug.
 
-##### 11:21
+##### 11,21
 Iar după naşterea lui Serug, Ragav a mai trăit două sute şapte ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:22
+##### 11,22
 Serug a trăit o sută treizeci de ani şi atunci i s-a născut Nahor.
 
-##### 11:23
+##### 11,23
 Iar după naşterea lui Nahor, Serug a mai trăit două sute de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:24
+##### 11,24
 Nahor a trăit şaptezeci şi nouă de ani şi atunci i s-a născut Terah.
 
-##### 11:25
+##### 11,25
 Iar după naşterea lui Terah, Nahor a mai trăit o sută două zeci şi cinci de ani şi a născut fii şi fiice şi apoi a murit.
 
-##### 11:26
+##### 11,26
 Terah a trăit şaptezeci de ani şi atunci i s-au născut Avram, Nahor şi Haran.
 
-##### 11:27
+##### 11,27
 Iar spiţa neamului lui Terah este aceasta: lui Terah i s-au născut Avram, Nahor şi Haran; lui Haran i s-a născut Lot.
 
-##### 11:28
+##### 11,28
 Şi a murit Haran înainte de Terah, tatăl său, în pământul de naştere, în Urul Caldeii.
 
-##### 11:29
+##### 11,29
 Iar Avram şi Nahor şi-au luat femei; numele femeii lui Avram era Sarai, iar numele femeii lui Nahor era Milca, fata lui Haran, tatăl Milcăi şi al Iscăi.
 
-##### 11:30
+##### 11,30
 Sarai însă era stearpă şi nu năştea copii.
 
-##### 11:31
+##### 11,31
 Şi a luat Terah pe Avram, fiul său, şi pe Lot, fiul lui Haran şi nepotul său, şi pe Sarai, nora sa, şi femeia lui Avram, fiul său, şi a plecat cu ei din Urul Caldeii, ca să meargă până în ţara Canaanului; dar au mers până la Haran şi s-au aşezat acolo.
 
-##### 11:32
+##### 11,32
 De toate, zilele vieţii lui Terah în pământul Haran au fost două sute cinci ani. Şi a murit Terah în Haran.
 
 
 ## Facerea - 12 - *Chemarea lui Avram*
 
-##### 12:1
+##### 12,1
 După aceea a zis Domnul către Avram: «Ieşi din pământul tău, din neamul tău şi din casa tatălui tău şi vino în pământul pe care ţi-l voi arăta Eu.
 
-##### 12:2
+##### 12,2
 Şi Eu voi ridica din tine un popor mare, te voi binecuvânta, voi mări numele tău şi vei fi izvor de binecuvântare.
 
-##### 12:3
+##### 12,3
 Binecuvânta-voi pe cei ce te vor binecuvânta, iar pe cei ce te vor blestema îi voi blestema; şi se vor binecuvânta întru tine toate neamurile pământului».
 
-##### 12:4
+##### 12,4
 Deci a plecat Avram, cum îi zisese Domnul, şi s-a dus şi Lot cu el. Avram însă era de şaptezeci şi cinci de ani, când a ieşit din Haran.
 
-##### 12:5
+##### 12,5
 Şi a luat Avram pe Sarai, femeia sa, pe Lot, fiul fratelui său, şi toate averile ce agonisiseră ei şi toţi oamenii, pe care-i aveau în Haran, şi au ieşit, ca să meargă în ţara Canaanului şi au ajuns în Canaan.
 
-##### 12:6
+##### 12,6
 Apoi a străbătut Avram ţara aceasta de-a lungul până la locul numit Sichem, până la stejarul Mamvri. Pe atunci trăiau în țara aceasta Canaaneii.
 
-##### 12:7
+##### 12,7
 Acolo S-a arătat Domnul lui Avram şi i-a zis: «Țara aceasta o voi da urmaşilor tăi». Şi a zidit Avram acolo un jertfelnic Domnului, Celui ce Se arătase.
 
-##### 12:8
+##### 12,8
 De acolo a pornit el spre muntele care e la răsărit de Betel, şi şi-a întins acolo cortul aşa, încât Betelul era la apus, iar Hai, la răsărit. A zidit acolo un jertfelnic Domnului şi s-a închinat Domnului, Celui ce i Se arătase.
 
-##### 12:9
+##### 12,9
 Apoi s-a ridicat Avram şi de acolo şi s-a îndreptat spre miazăzi.
 
-##### 12:10
+##### 12,10
 Pe atunci s-a făcut foamete în ţinutul acela şi s-a coborât Avram în Egipt, ca să locuiască acolo, pentru că se înteţise foametea în ţinutul acela.
 
-##### 12:11
+##### 12,11
 Când însă s-a apropiat Avram să intre în Egipt, a zis către Sarai, femeia sa: «Ştiu că eşti femeie frumoasă la chip.
 
-##### 12:12
+##### 12,12
 De aceea, când te vor vedea Egiptenii, vor zice: «Aceasta-i femeia lui!». Şi mă vor ucide pe mine, iar pe tine te vor lăsa cu viaţă.
 
-##### 12:13
+##### 12,13
 Zi deci că-mi eşti soră, ca să-mi fie şi mie bine pentru trecerea ta şi pentru trecerea ta să trăiesc şi eu!».
 
-##### 12:14
+##### 12,14
 Iar după ce a sosit Avram în Egipt, au văzut Egiptenii că femeia lui e foarte frumoasă.
 
-##### 12:15
+##### 12,15
 Şi au văzut-o şi dregătorii lui Faraon şi au lăudat-o înaintea lui Faraon şi au dus-o în casa lui Faraon;
 
-##### 12:16
+##### 12,16
 Şi pentru ea i-au făcut bine lui Avram şi avea el oi, vite mari şi asini, slugi şi slujnice, catâri şi cămile.
 
-##### 12:17
+##### 12,17
 Domnul însă a lovit cu bătăi mari şi grele pe Faraon şi casa lui, pentru Sarai, femeia lui Avram.
 
-##### 12:18
+##### 12,18
 Şi chemând Faraon pe Avram, i-a zis: «Ce mi-ai făcut? De ce nu mi-ai spus că aceasta e soţia ta?
 
-##### 12:19
+##### 12,19
 Pentru ce ai zis: Mi-e soră? Şi eu am luat-o de femeie: Acum dar iată-ţi femeia! Ia-ţi-o şi te du!».
 
-##### 12:20
+##### 12,20
 Şi a dat Faraon poruncă oamenilor săi pentru Avram, ca să-l petreacă pe el şi pe femeia lui şi toate câte avea şi pe Lot, care îl însoţea.
 
 
 ## Facerea - 13 - *Avram se desparte de Lot*
 
-##### 13:1
+##### 13,1
 Din Egipt, Avram cu femeia sa, cu Lot şi cu toate câte avea, a pornit în părţile de miazăzi ale Canaanului.
 
-##### 13:2
+##### 13,2
 Avram însă era foarte bogat în vite, în argint şi în aur.
 
-##### 13:3
+##### 13,3
 Şi a înaintat Avram pe unde venise, de la miazăzi spre Betel, până la locul unde fusese mai înainte cortul său, între Betel şi Hai,
 
-##### 13:4
+##### 13,4
 Adică până la locul unde era jertfelnicul pe care-l ridicase el mai înainte, şi acolo a chemat Avram numele Domnului.
 
-##### 13:5
+##### 13,5
 Şi Lot, care umbla cu Avram, încă avea oi şi vite mari şi corturi.
 
-##### 13:6
+##### 13,6
 Însă pământul acela nu-i încăpea să stea împreună, căci averile lor erau multe şi nu-i încăpea locul să trăiască împreună.
 
-##### 13:7
+##### 13,7
 De aceea se întâmplau certuri între păzitorii vitelor lui Avram şi păzitorii vitelor lui Lot. Pe atunci locuiau în pământul acela Canaaneii şi Ferezeii.
 
-##### 13:8
+##### 13,8
 Atunci a zis Avram către Lot: «Să nu fie sfadă între mine şi tine, între păstorii mei şi păstorii tăi, căci suntem fraţi.
 
-##### 13:9
+##### 13,9
 Iată, nu e oare tot pământul înaintea ta? Desparte-te dar de mine! Şi de vei apuca tu la stânga, eu voi apuca la dreapta; iar de vei apuca tu la dreapta, eu voi apuca la stânga».
 
-##### 13:10
+##### 13,10
 Şi ridicându-şi Lot ochii, a privit toată câmpia Iordanului, care, înainte de a strica Domnul Sodoma şi Gomora, toată până la Țoar era udată de apă, ca raiul Domnului, ca pământul Egiptului.
 
-##### 13:11
+##### 13,11
 Deci şi-a ales Lot tot ţinutul din preajma Iordanului şi a apucat Lot spre răsărit; şi aşa s-au despărţit ei unul de altul.
 
-##### 13:12
+##### 13,12
 Avram a rămas să locuiască în pământul Canaan, iar Lot s-a sălăşluit în cetăţile din ţinutul Iordanului şi şi-a întins corturile până la Sodoma.
 
-##### 13:13
+##### 13,13
 Iar oamenii Sodomei erau răi şi tare păcătoşi înaintea Domnului.
 
-##### 13:14
+##### 13,14
 Deci a zis Domnul către Avram, după ce s-a despărţit Lot de dânsul: «Ridică-ți ochii şi, din locul în care eşti acum, caută spre miazănoapte, spre miazăzi şi răsărit şi spre mare,
 
-##### 13:15
+##### 13,15
 Că tot pământul, cât îl vezi, ţi-l voi da ţie şi urmaşilor tăi pentru vecie.
 
-##### 13:16
+##### 13,16
 Voi face pe urmaşii tăi mulţi ca pulberea pământului; de va putea cineva număra pulberea pământului, va număra şi pe urmaşii tăi.
 
-##### 13:17
+##### 13,17
 Scoală şi cutreieră pământul acesta în lung şi în lat, că ţi-l voi da ţie şi urmaşilor tăi pentru vecie».
 
-##### 13:18
+##### 13,18
 Şi ridicându-şi Avram corturile, a venit şi s-a aşezat la stejarul Mamvri, care este în Hebron; şi a zidit acolo un jertfelnic Domnului.
 
 
 ## Facerea - 14 - *Robirea lui Lot. Avram îl scapă pe Lot și este binecuvântat de Melhisedec*
 
-##### 14:1
+##### 14,1
 Iar în zilele lui Amrafel, regele Senaarului, ale lui Arioc, regele Elasarului, ale lui Kedarlaomer, regele Elamului şi ale lui Tidal, regele din Gutim,
 
-##### 14:2
+##### 14,2
 S-a întâmplat să facă aceştia război cu Bera, regele Sodomei, cu Birşa, regele Gomorei, cu Şinab, regele Admei, cu Şemeber, regele Țeboimului, şi cu regele din Bela sau Țoar.
 
-##### 14:3
+##### 14,3
 Toţi aceştia din urmă s-au adunat în valea Sidim, unde e acum Marea cea Sărată.
 
-##### 14:4
+##### 14,4
 Doisprezece ani stătuseră ei în robia lui Kedarlaomer, iar în anul al treisprezecelea s-au răzvrătit.
 
-##### 14:5
+##### 14,5
 Şi în al patrusprezecelea an au venit Kedarlaomer şi regii, care ţineau cu el, şi au bătut pe Refaimi la Aşterot-Carnaim, pe Zuzimi la Ham, şi pe Emimi la Şave-Chiriataim;
 
-##### 14:6
+##### 14,6
 Iar pe Horei i-a bătut la muntele lor Seir şi până la El-Faran, care e lângă pustiu.
 
-##### 14:7
+##### 14,7
 Apoi, întorcându-se de acolo, au venit la Ain-Mişpat sau Cadeş şi au bătut toată ţara Amaleciţilor şi pe toţi Amoreii, care locuiau în Haţaţon-Tamar.
 
-##### 14:8
+##### 14,8
 Atunci au ieşit regele Sodomei, regele Gomorei, regele Admei, regele Țeboimului şi regele Belei sau Țoarului şi s-au bătut în valea Sidim
 
-##### 14:9
+##### 14,9
 Cu Kedarlaomer, regele Elamului, cu Tidal, regele din Gutim, cu Amrafel, regele Senaarului şi cu Arioc, regele Elasarului: patru regi împotriva a cinci.
 
-##### 14:10
+##### 14,10
 Valea Sidimului însă era plină de fântâni de smoală; şi, fugind, regele Sodomei şi regele Gomorei au căzut în ele, iar ceilalţi au fugit în munţi.
 
-##### 14:11
+##### 14,11
 Atunci biruitorii au luat toate averile Sodomei şi Gomorei şi toate bucatele lor şi s-au dus.
 
-##### 14:12
+##### 14,12
 Când s-au dus, au luat de asemenea şi pe Lot, nepotul lui Avram, care trăia în Sodoma, şi toată averea lui.
 
-##### 14:13
+##### 14,13
 Dar venind unii din cei scăpaţi, au vestit pe Avram Evreul, care trăia pe atunci la stejarul lui Mamvri, pe Amoreul, fratele lui Eşcol şi pe fratele lui Aner, care erau uniţi cu Avram.
 
-##### 14:14
+##### 14,14
 Auzind Avram că Lot, rudenia sa, a fost luat în robie, a adunat oamenii săi de casă, trei sute optsprezece, şi a urmărit pe vrăjmaşi până la Dan.
 
-##### 14:15
+##### 14,15
 Şi năvălind asupra lor noaptea, el şi oamenii săi i-au bătut şi i-au alungat până la Hoba, care este în stânga Damascului.
 
-##### 14:16
+##### 14,16
 Şi au întors toată prada luată din Sodoma, au întors şi pe Lot, rudenia sa, averea lui, femeile şi oamenii.
 
-##### 14:17
+##### 14,17
 Şi când se întorcea Avram, după înfrângerea lui Kedarlaomer şi a regilor uniţi cu acela, i-a ieşit înainte regele Sodomei în valea Şave, care astăzi se cheamă Valea Regilor.
 
-##### 14:18
+##### 14,18
 Iar Melhisedec, regele Salemului, i-a adus pâine şi vin. Melhisedec acesta era preotul Dumnezeului celui Preaînalt.
 
-##### 14:19
+##### 14,19
 Şi a binecuvântat Melhisedec pe Avram şi a zis: «Binecuvântat să fie Avram de Dumnezeu cel Preaînalt, Ziditorul cerului şi al pământului.
 
-##### 14:20
+##### 14,20
 Şi binecuvântat să fie Dumnezeul cel Preaînalt, Care a dat pe vrăjmaşii tăi în mâinile tale!». Şi Avram i-a dat lui Melhisedec zeciuială din toate.
 
-##### 14:21
+##### 14,21
 Iar regele Sodomei a zis către Avram: «Dă-mi oamenii, iar averile ia-le pentru tine!».
 
-##### 14:22
+##### 14,22
 Avram însă a răspuns regelui Sodomei: «Iată, îmi ridic mâna spre Domnul Dumnezeul cel Preaînalt, Ziditorul cerului şi al pământului,
 
-##### 14:23
+##### 14,23
 Că nici o aţă sau curea de încălţăminte nu voi lua din toate câte sunt ale tale, ca să nu zici: «Eu am îmbogăţit pe Avram»,
 
-##### 14:24
+##### 14,24
 Fără numai cele ce au mâncat tinerii şi ceea ce se cuvine a se împărţi aliaţilor mei, care au mers cu mine: Aner, Eşcol şi Mamvri. Aceia să-Şi ia partea lor!».
 
 
 ## Facerea - 15 - *Credința și dreptatea lui Avram*
 
-##### 15:1
+##### 15,1
 După acestea, fost-a cuvântul Domnului către Avram, noaptea, în vis, şi a zis: «Nu te teme, Avrame, că Eu sunt scutul tău şi răsplata ta va fi foarte mare!».
 
-##### 15:2
+##### 15,2
 Iar Avram a răspuns: «Stăpâne Doamne, ce ai să-mi dai? Că iată eu am să mor fără copii şi cârmuitor în casa mea este Eliezer din Damasc».
 
-##### 15:3
+##### 15,3
 Apoi Avram a adăugat: «De vreme ce nu mi-ai dat fii, iată sluga mea va fi moştenitor după mine!».
 
-##### 15:4
+##### 15,4
 Şi îndată s-a făcut cuvântul Domnului către el şi a zis: «Nu te va moşteni acela, ci cel ce va răsări din coapsele tale, acela te va moşteni!»
 
-##### 15:5
+##### 15,5
 Apoi l-a scos afară şi i-a zis: «Priveşte la cer şi numără stelele, de le poţi număra!». Şi a adăugat: «Atât de mulţi vor fi urmaşii tăi!».
 
-##### 15:6
+##### 15,6
 Şi a crezut Avram pe Domnul şi i s-a socotit aceasta ca dreptate.
 
-##### 15:7
+##### 15,7
 Şi i-a zis iarăşi: «Eu sunt Domnul, Care te-a scos din Urul Caldeii, ca să-ţi dau pământul acesta de moştenire».
 
-##### 15:8
+##### 15,8
 Şi a zis Avram: «Stăpâne Doamne pe ce voi cunoaşte că-l voi moşteni?».
 
-##### 15:9
+##### 15,9
 Iar Domnul i-a zis: «Găteşte-Mi o junincă de trei ani, o capră de trei ani, un berbec de trei ani, o turturică şi un pui de porumbel!».
 
-##### 15:10
+##### 15,10
 Şi a luat Avram toate aceste animale, le-a tăiat în două şi a pus bucăţile una în faţa alteia; iar păsările nu le-a tăiat.
 
-##### 15:11
+##### 15,11
 Şi năvăleau păsările răpitoare asupra trupurilor, iar Avram le alunga.
 
-##### 15:12
+##### 15,12
 La asfinţitul soarelui, a căzut peste Avram somn greu şi iată l-a cuprins întuneric şi frică mare.
 
-##### 15:13
+##### 15,13
 Atunci a zis Domnul către Avram: «Să ştii bine că urmaşii tăi vor pribegi în pământ străin, unde vor fi robiţi şi apăsaţi patru sute de ani;
 
-##### 15:14
+##### 15,14
 Dar pe neamul acela, căruia ei vor fi robi, îl voi judeca Eu şi după aceea ei vor ieşi să vină aici, cu avere multă.
 
-##### 15:15
+##### 15,15
 Iar tu vei trece la părinţii tăi în pace şi vei fi îngropat la bătrâneţi fericite.
 
-##### 15:16
+##### 15,16
 Ei însă se vor întoarce aici, în al patrulea veac de oameni, căci nu s-a umplut încă măsura nelegiuirilor Amoreilor».
 
-##### 15:17
+##### 15,17
 Iar după ce a asfinţit soarele şi s-a făcut întuneric, iată un fum ca dintr-un cuptor şi pară de foc au trecut printre bucăţile acelea.
 
-##### 15:18
+##### 15,18
 În ziua aceea a încheiat Domnul legământ cu Avram, zicând: «Urmaşilor tăi voi da pământul acesta de la râul Egiptului până la râul cel mare al Eufratului;
 
-##### 15:19
+##### 15,19
 Voi da pe Chenei, pe Chenezei, pe Chedmonei,
 
-##### 15:20
+##### 15,20
 Pe Hetei, pe Ferezei, pe Refaimi,
 
-##### 15:21
+##### 15,21
 Pe Amorei, pe Canaanei, pe Hevei, pe Gherghesei şi pe Iebusei».
 
 
 ## Facerea - 16 - *Ismael*
 
-##### 16:1
+##### 16,1
 Sarai însă, femeia lui Avram, nu-i năştea. Dar avea ea o slujnică egipteancă, al cărei nume era Agar.
 
-##### 16:2
+##### 16,2
 Atunci a zis Sarai către Avram: «Iată m-a închis Domnul, ca să nu nasc. Intră dar la slujnica mea; poate vei dobândi copii de la ea!». Şi a ascultat Avram vorba Saraii.
 
-##### 16:3
+##### 16,3
 A luat deci Sarai, femeia lui Avram, pe Agar egipteanca, slujnica sa, la zece ani după venirea lui Avram în pământul Canaan, şi a dat-o de femeie lui Avram, bărbatul său.
 
-##### 16:4
+##### 16,4
 Şi a intrat acesta la Agar şi ea a zămislit; şi văzând că a zămislit, ea a început a dispreţui pe stăpâna sa.
 
-##### 16:5
+##### 16,5
 Atunci a zis Sarai către Avram: «Nedreptate mi se face de către tine. Eu ți-am dat pe slujnica mea la sân, iar ea, văzând că a zămislit, a început să mă dispreţuiască. Dumnezeu să judece între mine şi între tine!».
 
-##### 16:6
+##### 16,6
 Iar Avram a zis către Sarai: «Iată, slujnica ta e în mâinile tale, fă cu ea ce-ți place!». Și Sarai a necăjit-o şi ea a fugit de la faţa ei.
 
-##### 16:7
+##### 16,7
 Şi a găsit-o îngerul Domnului la un izvor de apă în pustiu, la izvorul de lângă calea ce duce spre Sur.
 
-##### 16:8
+##### 16,8
 Și i-a zis îngerul Domnului: «Agar, slujnica Saraii, de unde vii şi unde te duci?». Iar ea a răspuns: «Fug de la faţa Saraii, stăpâna mea».
 
-##### 16:9
+##### 16,9
 Şi îngerul Domnului i-a zis iarăşi: «Întoarce-te la stăpâna ta şi te supune sub mâna ei!».
 
-##### 16:10
+##### 16,10
 Apoi i-a mai zis îngerul Domnului: «Voi înmulţi pe urmaşii tăi foarte tare, încât nu se vor putea număra din pricina mulţimii.
 
-##### 16:11
+##### 16,11
 Iată, tu ai rămas grea – îi zise îngerul Domnului – şi vei naşte un fiu şi-i vei pune numele Ismael, pentru că a auzit Domnul suferinţa ta.
 
-##### 16:12
+##### 16,12
 Acela va fi ca un asin sălbatic între oameni; mâinile lui vor fi asupra tuturor şi mâinile tuturor asupra lui, dar el va sta dârz în faţa tuturor fraţilor lui».
 
-##### 16:13
+##### 16,13
 Şi a numit Agar pe Domnul, Cel ce-i grăise, cu numele acesta: Ata-El-Roi (*care se tâlcuieşte: Tu eşti Dumnezeu atotvăzător*), căci zicea ea: «N-am văzut eu, oare, în faţă pe Cel ce m-a văzut?».
 
-##### 16:14
+##### 16,14
 De aceea se numeşte fântâna aceasta: Beer-Lahai-Roi (*care se tâlcuieşte: Izvorul Celui viu, Care m-a văzut*), şi se află între Cadeş şi Bared.
 
-##### 16:15
+##### 16,15
 După aceea a născut Agar lui Avram un fiu şi Avram a pus fiului său, pe care i-l născuse Agar, numele Ismael.
 
-##### 16:16
+##### 16,16
 Avram însă era de optzeci şi şase de ani când i-a născut Agar pe Ismael.
 
 
 ## Facerea - 17 - *Tăierea împrejur*
 
-##### 17:1
+##### 17,1
 Iar când era Avram de nouăzeci şi nouă de ani, i S-a arătat Domnul şi i-a zis: «Eu sunt Dumnezeul cel Atotputernic; fă ce-i plăcut înaintea Mea şi fii fără prihană;
 
-##### 17:2
+##### 17,2
 Şi voi încheia legământ cu tine şi te voi înmulţi foarte, foarte tare».
 
-##### 17:3
+##### 17,3
 Atunci a căzut Avram cu faţa la pământ, iar Dumnezeu a mai grăit şi a zis:
 
-##### 17:4
+##### 17,4
 «Eu sunt şi iată care-i legământul Meu cu tine: vei fi tată a mulţime de popoare,
 
-##### 17:5
+##### 17,5
 Şi nu te vei mai numi Avram, ci Avraam va fi numele tău, căci am să te fac tată a mulţime de popoare.
 
-##### 17:6
+##### 17,6
 Am să te înmulţesc foarte, foarte tare, şi am să ridic din tine popoare, şi regi se vor ridica din tine.
 
-##### 17:7
+##### 17,7
 Voi pune legământul Meu între Mine şi între tine şi urmaşii tăi, din neam în neam, să fie legământ veşnic, aşa că Eu voi fi Dumnezeul tău şi al urmaşilor tăi de după tine.
 
-##### 17:8
+##### 17,8
 Şi-ţi voi da ţie şi urmaşilor tăi pământul în carte pribegeşti acum ca străin, tot pământul Canaanului, ca moştenire veşnică, şi vă voi fi Dumnezeu».
 
-##### 17:9
+##### 17,9
 Apoi a mai zis Dumnezeu lui Avraam: «Iar tu şi urmaşii tăi din neam în neam să păziţi legământul Meu.
 
-##### 17:10
+##### 17,10
 Iar legământul dintre Mine şi tine şi urmaşii tăi din neam în neam, pe care trebuie să-l păziţi, este acesta: toţi cei de parte bărbătească ai voştri să se taie împrejur.
 
-##### 17:11
+##### 17,11
 Să vă tăiaţi împrejur şi acesta va fi semnul legământului dintre Mine şi voi.
 
-##### 17:12
+##### 17,12
 În neamul vostru, tot pruncul de parte bărbătească, născut la voi în casă sau cumpărat cu bani de la alt neam, care nu-i din seminţia voastră, să se taie împrejur în ziua a opta.
 
-##### 17:13
+##### 17,13
 Numaidecât să fie tăiat împrejur cel născut în casa ta sau cel cumpărat cu argintul tău şi legământul Meu va fi însemnat pe trupul vostru, ca legământ veşnic.
 
-##### 17:14
+##### 17,14
 Iar cel de parte bărbătească netăiat împrejur, care nu se va tăia împrejur, în ziua a opta, sufletul acela se va stârpi din poporul său, căci a călcat legământul Meu».
 
-##### 17:15
+##### 17,15
 După aceea a zis iarăşi Dumnezeu către Avraam: «Pe Sarai, femeia ta, să nu o mai numeşti Sarai, ci Sarra să-i fie numele.
 
-##### 17:16
+##### 17,16
 Şi o voi binecuvânta şi-ţi voi da din ea un fiu; o voi binecuvânta şi va fi mamă de popoare şi regi peste popoare se vor ridica dintr-însa».
 
-##### 17:17
+##### 17,17
 Avraam a căzut atunci cu faţa la pământ şi a râs, zicând în sine: «E cu putinţă oare să mai aibă fiu cel de o sută de ani? Şi Sarra cea de nouăzeci de ani e cu putinţă oare să mai nască?».
 
-##### 17:18
+##### 17,18
 Apoi a mai zis Avraam către Domnul: «O, Doamne, măcar Ismael să trăiască înaintea Ta!».
 
-##### 17:19
+##### 17,19
 Iar Dumnezeu a răspuns lui Avraam: «Adevărat, însăşi Sarra, femeia ta, îţi va naşte un fiu şi-i vei pune numele Isaac şi Eu voi încheia cu el legământul Meu, legământ veşnic: să-i fiu Dumnezeu lui şi urmaşilor lui.
 
-##### 17:20
+##### 17,20
 Iată, te-am ascultat şi pentru Ismael, şi iată îl voi binecuvânta, îl voi creşte şi-l voi înmulţi foarte, foarte tare; doisprezece voievozi se vor naşte din el şi voi face din el popor mare.
 
-##### 17:21
+##### 17,21
 Dar legământul Meu îl voi încheia cu Isaac, pe care-l va naşte Sarra la anul pe vremea aceasta!».
 
-##### 17:22
+##### 17,22
 Încetând apoi Dumnezeu de a mai vorbi cu Avraam, S-a înălţat de la el.
 
-##### 17:23
+##### 17,23
 Atunci a luat Avraam pe Ismael, fiul său, pe toți cei născuţi în casa sa, pe toţi cei cumpăraţi cu argintul său şi pe toţi oamenii de parte bărbătească din casa lui Avraam şi i-a tăiat împrejur, chiar în ziua aceea, cum îi poruncise Dumnezeu.
 
-##### 17:24
+##### 17,24
 Şi era Avraam de nouăzeci şi nouă de ani, când s-a tăiat împrejur.
 
-##### 17:25
+##### 17,25
 Iar Ismael, fiul său, era de treisprezece ani, când s-a tăiat împrejur.
 
-##### 17:26
+##### 17,26
 Avraam şi Ismael, fiul său, au fost tăiaţi împrejur în aceeaşi zi.
 
-##### 17:27
+##### 17,27
 Şi cu ei au fost tăiaţi împrejur toţi cei de parte bărbătească din casa lui Avraam, născuţi în casa lui sau cumpăraţi cu argint de la cei de alt neam.
 
 
 ## Facerea - 18 - *Avraam primește pe Sfânta Treime la stejarul Mamvri*
 
-##### 18:1
+##### 18,1
 Apoi Domnul S-a arătat iarăşi lui Avraam la stejarul Mamvri, într-o zi pe la amiază, când şedea el în uşa cortului său.
 
-##### 18:2
+##### 18,2
 Atunci ridicându-şi ochii săi, a privit şi iată trei Oameni stăteau înaintea lui; şi cum l-a văzut, a alergat din pragul cortului său în întâmpinarea Lor şi s-a închinat până la pământ.
 
-##### 18:3
+##### 18,3
 Apoi a zis: «Doamne, de am aflat har înaintea Ta, nu ocoli pe robul Tău!
 
-##### 18:4
+##### 18,4
 Se va aduce apă să Vă spălaţi picioarele şi să Vă odihniţi sub acest copac.
 
-##### 18:5
+##### 18,5
 Şi voi aduce pâine şi veţi mânca, apoi Vă veţi duce în drumul Vostru, întrucât treceţi pe la robul Vostru!». Zis-au Aceia: «Fă, precum ai zis!».
 
-##### 18:6
+##### 18,6
 După aceea a alergat Avraam în cort la Sarra şi i-a zis: «Frământă degrabă trei măsuri de făină bună şi fă azime!».
 
-##### 18:7
+##### 18,7
 Apoi Avraam a dat fuga la cireadă, a luat un viţel tânăr şi gras şi l-a dat slugii, care l-a gătit degrabă.
 
-##### 18:8
+##### 18,8
 Şi a luat Avraam unt, lapte şi viţelul cel gătit şi le-a pus înaintea Lor şi pe când Ei mâncau a stat şi el alături de Ei sub copac.
 
-##### 18:9
+##### 18,9
 Şi l-au întrebat Oamenii aceia: «Unde este Sarra, femeia ta?». Iar el, răspunzând, a zis: «Iată, în cort!».
 
-##### 18:10
+##### 18,10
 Zis-a Unul: «Iată, la anul pe vremea asta am să vin iar pe la tine şi Sarra, femeia ta, va avea un fiu». Iar Sarra a auzit din uşa cortului, de la spatele lui.
 
-##### 18:11
+##### 18,11
 Avraam şi Sarra însă erau bătrâni, înaintaţi în vârstă, şi Sarra nu mai era în stare să zămislească.
 
-##### 18:12
+##### 18,12
 Şi a râs Sarra în sine şi şi-a zis: «Să mai am eu oare această mângâiere acum, când am îmbătrânit şi când e bătrân şi stăpânul meu?».
 
-##### 18:13
+##### 18,13
 Atunci a zis Domnul către Avraam: «Pentru ce a râs Sarra în sine şi a zis: «Oare cu adevărat voi naşte, bătrână cum sunt?».
 
-##### 18:14
+##### 18,14
 Este oare ceva cu neputinţă la Dumnezeu? La anul pe vremea aceasta am să vin pe la tine şi Sarra va avea un fiu!».
 
-##### 18:15
+##### 18,15
 Iar Sarra a tăgăduit, zicând: «N-am râs», căci se înspăimântase. Acela însă i-a zis: «Ba, ai râs!».
 
-##### 18:16
+##### 18,16
 Apoi S-au sculat Oamenii aceia de acolo şi S-au îndreptat spre Sodoma şi Gomora şi s-a dus şi Avraam cu Ei, ca să-I petreacă.
 
-##### 18:17
+##### 18,17
 Domnul însă a zis: «Tăinui-voi Eu oare de Avraam, sluga Mea, ceea ce voiesc să fac?
 
-##### 18:18
+##### 18,18
 Din Avraam cu adevărat se va ridica un popor mare şi tare şi printr-însul se vor binecuvânta toate neamurile pământului,
 
-##### 18:19
+##### 18,19
 Că l-am ales, ca să înveţe pe fiii şi casa sa după sine să umble în calea Domnului şi să facă judecată şi dreptate; pentru ca să aducă Domnul asupra lui Avraam toate câte i-a făgăduit».
 
-##### 18:20
+##### 18,20
 Zis-a deci Domnul: «Strigarea Sodomei şi a Gomorei e mare şi păcatul lor cumplit de greu.
 
-##### 18:21
+##### 18,21
 Pogorî-Mă-voi deci să văd dacă faptele lor sunt cu adevărat aşa cum s-a suit până la Mine strigarea împotriva lor, iar de nu, să ştiu».
 
-##### 18:22
+##### 18,22
 De acolo doi din Oamenii aceia, plecând, S-au îndreptat spre Sodoma, în vreme ce Avraam stătea încă înaintea Domnului.
 
-##### 18:23
+##### 18,23
 Şi apropiindu-se Avraam, a zis: «Pierde-vei, oare, pe cel drept ca şi pe cel păcătos, încât să se întâmple celui drept ce se întâmplă celui nelegiuit?
 
-##### 18:24
+##### 18,24
 Poate în cetatea aceea să fie cincizeci de drepţi: pierde-i-vei, oare, şi nu vei cruţa tot locul acela pentru cei cincizeci de drepţi, de se vor afla în cetate?
 
-##### 18:25
+##### 18,25
 Nu se poate ca Tu să faci una ca asta şi să pierzi pe cel drept ca şi pe cel fără de lege şi să se întâmple celui drept ce se întâmplă celui necredincios! Departe de Tine una ca asta! Judecătorul a tot pământul va face, oare, nedreptate?».
 
-##### 18:26
+##### 18,26
 Zis-a Domnul: «De se vor găsi în cetatea Sodomei cincizeci de drepţi, voi cruţa pentru ei toată cetatea şi tot locul acela».
 
-##### 18:27
+##### 18,27
 Şi răspunzând Avraam, a zis: «Iată, cutez să vorbesc Stăpânului meu, eu, care sunt pulbere şi cenuşă!
 
-##### 18:28
+##### 18,28
 Poate că lipsesc cinci din cincizeci de drepţi; poate să fie numai patruzeci şi cinci; pentru lipsa a cinci pierde-vei, oare, toată cetatea?». Zis-a Domnul: «Nu o voi pierde de voi găsi acolo patruzeci şi cinci de drepţi».
 
-##### 18:29
+##### 18,29
 Şi a adăugat Avraam să grăiască Domnului şi a zis: «Dar de se vor găsi acolo numai patruzeci de drepţi?». Şi Domnul a zis: «Nu o voi pierde pentru cei patruzeci!».
 
-##### 18:30
+##### 18,30
 Şi a zis iarăşi Avraam: «Să nu Se mânie Stăpânul meu de voi mai grăi: Dar de se vor găsi acolo numai treizeci de drepţi?». Zis-a Domnul: «Nu o voi pierde de voi găsi acolo treizeci».
 
-##### 18:31
+##### 18,31
 Şi a zis Avraam: «Iată, mai cutez să vorbesc Stăpânului meu! Poate că se vor găsi acolo numai douăzeci de drepţi». Răspuns-a Domnul: «Nu o voi pierde pentru cei douăzeci».
 
-##### 18:32
+##### 18,32
 Şi a mai zis Avraam: «Să nu se mânie Stăpânul meu de voi mai grăi încă o dată: Dar de se vor găsi acolo numai zece drepţi?». Iar Domnul i-a zis: «Pentru cei zece nu o voi pierde».
 
-##### 18:33
+##### 18,33
 Şi terminând Domnul de a mai grăi cu Avraam; S-a dus, iar Avraam s-a întors la locul său.
 
 
 ## Facerea - 19 - *Pirderea Sodomei*
 
-##### 19:1
+##### 19,1
 Cei doi Îngeri au ajuns la Sodoma seara, iar Lot şedea la poarta Sodomei. Şi văzându-I, Lot s-a sculat înaintea Lor şi s-a plecat cu faţa până la pământ
 
-##### 19:2
+##### 19,2
 Şi a zis: «Stăpânii mei, abateţi-vă pe la casa slugii Voastre, ca să rămâneţi acolo; spălaţi-Vă picioarele, iar dimineaţă, sculându-Vă, Vă veţi duce în drumul Vostru». Ei însă au zis: «Nu, ci vom rămâne în uliţă».
 
-##### 19:3
+##### 19,3
 Iar el I-a rugat stăruitor şi S-au abătut la el şi au intrat în casa lui. Atunci el Le-a gătit mâncare, Le-a copt azime şi au mâncat.
 
-##### 19:4
+##### 19,4
 Dar mai înainte de a Se culca Ei, sodomenii, locuitorii cetăţii Sodoma, tot poporul din toate marginile; de la tânăr până la bătrân, au înconjurat casa,
 
-##### 19:5
+##### 19,5
 Şi au chemat afară pe Lot şi au zis către el: «Unde sunt Oamenii, Care au intrat să mâie la tine? Scoate-I ca să-I cunoaştem!».
 
-##### 19:6
+##### 19,6
 Şi a ieşit Lot la ei dinaintea uşii şi, închizând uşa după dânsul,
 
-##### 19:7
+##### 19,7
 A zis către ei: «Nu, fraţii mei, să nu faceţi niciun rău.
 
-##### 19:8
+##### 19,8
 Am eu două fete, care n-au cunoscut încă bărbat; mai degrabă vi le scot pe acelea, să faceţi cu ele ce veţi vrea, numai Oamenilor acelora să nu le faceţi nimic, de vreme ce au intrat Ei sub acoperişul casei mele!».
 
-##### 19:9
+##### 19,9
 Iar ei au zis către el: «Pleacă de aici! Eşti un venetic şi acum faci pe judecătorul? Mai rău decât Acelora iţi vom face!». Şi repezindu-se spre Lot, se apropiară să spargă uşa.
 
-##### 19:10
+##### 19,10
 Atunci Oamenii aceia, care găzduiau în casa lui Lot, întinzându-Şi mâinile, au tras pe Lot în casă la Ei şi au încuiat uşa;
 
-##### 19:11
+##### 19,11
 Iar pe oamenii, care erau la uşa casei, i-au lovit cu orbire de la mic până la mare, încât în zadar se chinuiau să găsească uşa.
 
-##### 19:12
+##### 19,12
 Apoi au zis cei doi Oameni către Lot: «Ai tu pe cineva din ai tăi aici? De ai fii, sau fiice, sau gineri, sau pe oricine altul în cetate, scoate-i din locul acesta,
 
-##### 19:13
+##### 19,13
 Că Noi avem să pierdem locul acesta, pentru că strigarea împotriva lor s-a suit înaintea Domnului şi Domnul Ne-a trimis să-l pierdem».
 
-##### 19:14
+##### 19,14
 Atunci a ieşit Lot şi a grăit cu ginerii săi, care luaseră pe fetele lui, şi le-a zis: «Sculaţi-vă şi ieşiţi din locul acesta, că va să piardă Domnul cetatea». Ginerilor însă li s-a părut că el glumeşte.
 
-##### 19:15
+##### 19,15
 Iar în revărsatul zorilor grăbeau îngerii pe Lot, zicând: «Scoală, ia-ţi femeia şi pe cele două fete ale tale, pe care le ai, şi ieşi, ca să nu pieri şi tu pentru nedreptăţile cetăţii!».
 
-##### 19:16
+##### 19,16
 Dar fiindcă el zăbovea, îngerii, din mila Domnului către el, l-au apucat de mână pe el şi pe femeia lui şi pe cele două fete ale lui
 
-##### 19:17
+##### 19,17
 Şi, scoţându-l afară, unul din Ei a zis: «Mântuieşte-ţi sufletul tău! Să nu te uiţi înapoi, nici să te opreşti în câmp, ci fugi în munte, ca să nu pieri cu ei!».
 
-##### 19:18
+##### 19,18
 Iar Lot a zis către Dânşii: «Nu, Stăpâne!
 
-##### 19:19
+##### 19,19
 Iată sluga Ta a aflat bunăvoinţă înaintea Ta şi Tu ai făcut milă mare cu mine, mântuindu-mi viaţa; dar nu voi putea să fug până în munte, ca să nu mă ajungă primejdia şi să nu mor.
 
-##### 19:20
+##### 19,20
 Iată cetatea aceasta este mai aproape; să fug acolo şi să mă izbăvesc. Ea e mică şi-mi voi scăpa acolo viaţa prin Tine!».
 
-##### 19:21
+##### 19,21
 Şi i-a zis îngerul: «Iată, îţi cinstesc faţa şi-ţi împlinesc acest cuvânt, să nu pierd cetatea despre care grăieşti.
 
-##### 19:22
+##### 19,22
 Grăbeşte dar şi fugi acolo; că nu pot să fac nimic până nu vei ajunge tu acolo!». De aceea s-a şi numit cetatea aceea Ţoar.
 
-##### 19:23
+##### 19,23
 Când s-a ridicat soarele deasupra pământului, a intrat Lot în Ţoar.
 
-##### 19:24
+##### 19,24
 Atunci Domnul a slobozit peste Sodoma şi Gomora ploaie de pucioasă şi foc din cer de la Domnul
 
-##### 19:25
+##### 19,25
 Şi a stricat cetăţile acestea, toate împrejurimile lor, pe toţi locuitorii cetăţilor şi toate plantele ţinutului aceluia.
 
-##### 19:26
+##### 19,26
 Femeia lui Lot însă s-a uitat înapoi şi s-a prefăcut în stâlp de sare.
 
-##### 19:27
+##### 19,27
 Iar Avraam s-a sculat dis-de-dimineaţă şi s-a dus la locul unde stătuse înaintea Domnului
 
-##### 19:28
+##### 19,28
 Şi, căutând spre Sodoma şi Gomora şi spre toate împrejurimile lor, a văzut ridicându-se de la pământ fumegare, ca fumul dintr-un cuptor.
 
-##### 19:29
+##### 19,29
 Dar, când a stricat Dumnezeu toate cetăţile din părţile acelea, şi-a adus aminte Dumnezeu de Avraam şi a scos pe Lot afară din prăpădul cu care a stricat Dumnezeu cetăţile, unde trăia Lot.
 
-##### 19:30
+##### 19,30
 Apoi a ieşit Lot din Ţoar şi sa aşezat în munte, împreună cu cele două fete ale sale, căci se temea să locuiască în Ţoar, şi a locuit într-o peşteră, împreună cu cele două fete ale sale.
 
-##### 19:31
+##### 19,31
 Atunci a zis fata cea mai mare către cea mai mică: «Tatăl nostru e bătrân şi nu-i nimeni în ţinutul acesta, care să intre la noi, cum e obiceiul pământului.
 
-##### 19:32
+##### 19,32
 Haidem dar să îmbătăm pe tatăl nostru cu vin şi să ne culcăm cu el şi să ne ridicăm urmaşi dintr-însul!».
 
-##### 19:33
+##### 19,33
 Şi au îmbătat pe tatăl lor cu vin în noaptea aceea; şi în noaptea aceea, intrând fata cea mai în vârstă, a dormit cu tatăl ei şi acesta n-a simţit când s-a culcat şi când s-a sculat ea.
 
-##### 19:34
+##### 19,34
 Iar a doua zi a zis cea mai în vârstă către cea mai tânără: «Iată, eu am dormit astă-noapte cu tatăl meu; să-l îmbătăm cu vin şi în noaptea aceasta şi să intri şi tu să dormi cu el ca să ne ridicăm urmaşi din tatăl nostru!».
 
-##### 19:35
+##### 19,35
 Şi l-au îmbătat cu vin şi în noaptea aceasta şi a intrat şi cea mai mică şi a dormit cu el; şi el n-a ştiut când s-a culcat ea, nici când s-a sculat ea.
 
-##### 19:36
+##### 19,36
 Şi au rămas amândouă fetele lui Lot grele de la tatăl lor.
 
-##### 19:37
+##### 19,37
 Şi a născut cea mai mare un fiu, şi i-a pus numele Moab, zicând: «Este din tatăl meu». Acesta e tatăl Moabiţilor, care sunt şi astăzi.
 
-##### 19:38
+##### 19,38
 Şi a născut şi cea mai mică un fiu şi i-a pus numele Ben-Ammi, zicând: «Acesta-i fiul neamului meu». Acesta e tatăl Amoniţilor, care sunt şi astăzi.
 
 
 ## Facerea - 20 - *Avraam în Gherara*
 
-##### 20:1
+##### 20,1
 Apoi a plecat Avraam de acolo spre miazăzi şi s-a aşezat între Cadeş şi Sur şi a trăit o vreme în Gherara.
 
-##### 20:2
+##### 20,2
 Şi a zis Avraam despre Sarra, femeia sa: «Mi-e soră», căci se temea să spună: «E femeia mea», ca nu cumva să-l ucidă locuitorii cetăţii aceleia din pricina ei. Iar Abimelec, regele Gherarei, a trimis şi a luat pe Sarra.
 
-##### 20:3
+##### 20,3
 Dar noaptea în vis a venit Dumnezeu la Abimelec şi i-a zis: «Iată, tu ai să mori pentru femeia, pe care ai luat-o, căci ea are bărbat».
 
-##### 20:4
+##### 20,4
 Abimelec însă nu se atinsese de ea şi a zis: «Doamne, ucide-vei oare chiar şi un om drept?
 
-##### 20:5
+##### 20,5
 Oare n-a zis el singur: «Mi-e soră?». Ba şi ea mia zis: «Mi-e frate!». Eu cu inimă nevinovată şi cu mâini curate am făcut aceasta».
 
-##### 20:6
+##### 20,6
 Iar Dumnezeu i-a zis în vis: «Şi Eu ştiu că cu inimă nevinovată ai făcut aceasta şi te-am ferit de a păcătui împotriva Mea; de aceea nu ţi-am îngăduit să te atingi de ea.
 
-##### 20:7
+##### 20,7
 Acum însă dă înapoi femeia omului aceluia, că e proroc, şi se va ruga pentru tine şi vei fi viu; iar de nu o vei da înapoi, să ştii bine că ai să mori şi tu şi toţi ai tăi!».
 
-##### 20:8
+##### 20,8
 Şi, sculându-se Abimelec, a doua zi de dimineaţă, a chemat pe toţi slujitorii săi şi le-a povestit toate acestea în auz, şi s-au spăimântat toţi oamenii aceia foarte tare.
 
-##### 20:9
+##### 20,9
 Apoi a chemat Abimelec pe Avraam şi i-a zis: «Ce mi-ai făcut tu? Cu ce ţi-am greşit eu, de ai adus asupra mea şi asupra ţării mele aşa păcat mare? Tu mi-ai făcut un lucru, care nu se cuvine a-l face!».
 
-##### 20:10
+##### 20,10
 Şi a mai zis Abimelec către Avraam: «Ce ai socotit tu, de ai făcut una ca asta?».
 
-##### 20:11
+##### 20,11
 Răspuns-a Avraam: «Am socotit că prin ţinutul acesta lipseşte frica de Dumnezeu şi voi fi omorât din pricina femeii mele.
 
-##### 20:12
+##### 20,12
 Cu adevărat ea mi-e soră după tată, dar nu ştiu după mamă, iar acum mi-e soţie.
 
-##### 20:13
+##### 20,13
 Iar când m-a scos Dumnezeu din casa tatălui meu, ca să pribegesc, am zis către ea: «Să-mi faci acest bine, şi, în orice loc vom merge, să zici de mine: «Mi-e frate!».
 
-##### 20:14
+##### 20,14
 Atunci a luat Abimelec o mie de sicli de argint, vite mari şi mici, robi şi roabe şi a dat lui Avraam; şi i-a dat înapoi şi pe Sarra, femeia sa.
 
-##### 20:15
+##### 20,15
 Şi a zis Abimelec către Avraam: «Iată, ţinutul meu îţi este la îndemână: locuieşte unde îţi place!».
 
-##### 20:16
+##### 20,16
 Iar către Sarra a zis: «Iată, dau fratelui tău o mie de sicli de argint, care vor fi ca un văl pe ochi pentru cei ce sunt împrejurul tău şi pentru lumea toată. Şi iată că acum eşti socotită dreaptă!».
 
-##### 20:17
+##### 20,17
 Şi s-a rugat Avraam lui Dumnezeu şi Dumnezeu a vindecat pe Abimelec, pe femeia lui şi pe roabele lui, şi acestea au început a naşte.
 
-##### 20:18
+##### 20,18
 Căci Domnul lovise cu stârpiciune toată casa lui Abimelec, pentru Sarra, femeia lui Avraam.
 
 
 ## Facerea - 21 - *Nașterea lui Isaac. Izgonirea lui Ismael*
 
-##### 21:1
+##### 21,1
 Apoi a căutai Domnul spre Sarra, cum îi spusese, şi i-a făcut Domnul Sarrei, cum îi făgăduise.
 
-##### 21:2
+##### 21,2
 Şi a zămislit Sarra şi a născut lui Avraam un fiu la bătrâneţe, la vremea arătată de Dumnezeu.
 
-##### 21:3
+##### 21,3
 Şi a pus Avraam fiului său, pe care i-l născuse Sarra, numele Isaac.
 
-##### 21:4
+##### 21,4
 Şi Avraam a tăiat împrejur pe Isaac, fiul său, în ziua a opta, cum îi poruncise Dumnezeu.
 
-##### 21:5
+##### 21,5
 Avraam însă era de o sută de ani, când i s-a născut Isaac, fiul său,
 
-##### 21:6
+##### 21,6
 Iar Sarra a zis: «Râs mi-a pricinuit mie Dumnezeu; că oricine va auzi aceasta, va râde!».
 
-##### 21:7
+##### 21,7
 Şi apoi a adăugat: «Cine ar fi putut spune lui Avraam că Sarra va hrăni prunci la sânul său? Şi totuşi i-am născut fiu la bătrâneţile sale!».
 
-##### 21:8
+##### 21,8
 Şi crescând copilul, a fost înţărcat. Iar Avraam a făcut ospăţ mare în ziua în care a fost înţărcat Isaac, fiul său.
 
-##### 21:9
+##### 21,9
 Văzând însă Sarra că fiul egiptencii Agar, pe care aceasta îl născuse lui Avraam, râde de Isaac, fiul ei,
 
-##### 21:10
+##### 21,10
 A zis către Avraam: «Izgoneşte pe roaba aceasta şi pe fiul ei, căci fiul roabei acesteia nu va fi moştenitor cu fiul meu, Isaac!».
 
-##### 21:11
+##### 21,11
 Şi s-au părut cuvintele acestea lui Avraam foarte grele pentru fiul său Ismael.
 
-##### 21:12
+##### 21,12
 Dumnezeu însă a zis către Avraam: «Să nu ţi se pară grele cuvintele cele pentru prunc şi pentru roabă; toate câte-ţi va zice Sarra, ascultă glasul ei; pentru că numai cei din Isaac se vor chema urmaşii tăi.
 
-##### 21:13
+##### 21,13
 Dar şi pe fiul roabei acesteia îl voi face neam mare, pentru că şi el este din sămânţa ta».
 
-##### 21:14
+##### 21,14
 Atunci s-a sculat Avraam dis-de-dimineaţă; a luat pâine şi un burduf cu apă şi le-a dat Agarei; apoi, punându-i pe umeri copilul, a slobozit-o; şi, plecând ea, a rătăcit prin pustiul Beer-Şeba.
 
-##### 21:15
+##### 21,15
 Când însă s-a sfârşit apa din burduf, a lepădat ea copilul sub un mărăcine.
 
-##### 21:16
+##### 21,16
 Şi ducându-se, a şezut în preajma lui, ca la o bătaie de arc, căci îşi zicea: «Nu voiesc să văd moartea copilului meu!». Şi, şezând ea acolo de o parte, şi-a ridicat glasul şi a plâns.
 
-##### 21:17
+##### 21,17
 Şi a auzit Dumnezeu glasul copilului din locul unde era şi îngerul lui Dumnezeu a strigat din cer către Agar şi a zis: «Ce e, Agar? Nu te teme, că a auzit Dumnezeu glasul copilului din locul unde este!
 
-##### 21:18
+##### 21,18
 Scoală, ridică copilul şi-l ţine de mână, căci am să fac din el un popor mare!».
 
-##### 21:19
+##### 21,19
 Atunci i-a deschis Dumnezeu ochii şi a văzut o fântână cu apă şi, mergând, şi-a umplut burduful cu apă şi a dat copilului să bea.
 
-##### 21:20
+##### 21,20
 Şi era Dumnezeu cu copilul şi a crescut acesta, a locuit în pustiu, şi s-a făcut vânător.
 
-##### 21:21
+##### 21,21
 A locuit deci Ismael în pustiul Faran şi mama sa i-a luat femeie din ţara Egiptului.
 
-##### 21:22
+##### 21,22
 În vremea aceea, Abimelec şi Ahuzat, care luase pe nora lui, şi Ficol, căpetenia oştirii lui, au zis către Avraam: «Dumnezeu e cu tine în toate câte faci.
 
-##### 21:23
+##### 21,23
 Jură-mi, deci, aici pe Dumnezeu că nu-mi vei face strâmbătate nici mie, nici fiului meu, nici neamului meu; ci, cum ţi-am făcut eu bine ţie, aşa să-mi faci şi tu mie şi ţării în care eşti oaspete!».
 
-##### 21:24
+##### 21,24
 Răspuns-a Avraam: «Jur!».
 
-##### 21:25
+##### 21,25
 Dar a mustrat Avraam pe Abimelec pentru fântânile de apă, pe care i le răpiseră slugile lui Abimelec.
 
-##### 21:26
+##### 21,26
 Iar Abimelec i-a zis: «Nu ştiu cine ţi-a făcut lucrul acesta; nici tu nu mi-ai spus nimic, nici eu n-am auzit decât astăzi».
 
-##### 21:27
+##### 21,27
 Şi a luat Avraam oi şi vite şi a dat lui Abimelec şi au încheiat amândoi legământ.
 
-##### 21:28
+##### 21,28
 Apoi Avraam a pus de o parte şapte mieluşele.
 
-##### 21:29
+##### 21,29
 Iar Abimelec a zis către Avraam: «Ce sunt aceste şapte mieluşele, pe care le-ai osebit?».
 
-##### 21:30
+##### 21,30
 Răspuns-a Avraam: «Aceste şapte mieluşele să le iei de la mine, ca să-mi fie mărturie, că eu am săpat fântâna aceasta!».
 
-##### 21:31
+##### 21,31
 De aceea s-a şi numit locul acela Beer-Şeba, pentru că acolo au jurat ei amândoi.
 
-##### 21:32
+##### 21,32
 Şi după ce au făcut ei legământ la Beer-Şeba, s-a sculat Abimelec şi Ahuzat, care luase pe nora lui, şi Ficol, căpetenia oştirii lui, şi s-au întors în ţara Filistenilor.
 
-##### 21:33
+##### 21,33
 Iar Avraam a sădit o dumbravă la Beer-Şeba şi a chemat acolo numele Domnului Dumnezeului celui veşnic.
 
-##### 21:34
+##### 21,34
 Şi a mai trăit Avraam în ţara Filistenilor zile multe, ca străin.
 
 
 ## Facerea - 22 - *Isaac adus spre jertfă*
 
-##### 22:1
+##### 22,1
 După acestea, Dumnezeu a încercat pe Avraam şi i-a zis: «Avraame, Avraame!». Iar el a răspuns: «Iată-mă!».
 
-##### 22:2
+##### 22,2
 Şi Dumnezeu i-a zis: «Ia pe fiul tău, pe Isaac, pe singurul tău fiu, pe care-l iubeşti, şi du-te în pământul Moria şi adu-l acolo ardere de tot pe un munte, pe care ţi-l voi arăta Eu!».
 
-##### 22:3
+##### 22,3
 Sculându-se deci Avraam dis-de-dimineaţă, a pus samarul pe asinul său şi a luat cu sine două slugi şi pe Isaac, fiul său; şi tăind lemne pentru jertfă, s-a ridicat şi a plecat la locul despre care-i grăise Dumnezeu.
 
-##### 22:4
+##### 22,4
 Iar a treia zi, ridicându-şi Avraam ochii, a văzut în depărtare locul acela.
 
-##### 22:5
+##### 22,5
 Atunci a zis Avraam slugilor sale: «Rămâneţi aici cu asinul, iar eu şi copilul ne ducem până acolo şi, închinându-ne, ne vom întoarce la voi».
 
-##### 22:6
+##### 22,6
 Luând deci Avraam lemnele cele pentru jertfă, le-a pus pe umerii lui Isaac, fiul său; iar el a luat în mâini focul şi cuţitul şi s-au dus amândoi împreună.
 
-##### 22:7
+##### 22,7
 Atunci a grăit Isaac lui Avraam, tatăl său, şi a zis: «Tată!». Iar acesta a răspuns: «Ce este, fiul meu?». Zis-a Isaac: «Iată, foc şi lemne avem; dar unde este oaia pentru jertfă?».
 
-##### 22:8
+##### 22,8
 Avraam însă a răspuns: «Fiul meu, va îngriji Dumnezeu de oaia jertfei Sale!». Şi s-au dus mai departe amândoi împreună.
 
-##### 22:9
+##### 22,9
 Iar dacă au ajuns la locul, de care-i grăise Dumnezeu, a ridicat Avraam acolo jertfelnic, a aşezat lemnele pe el şi, legând pe Isaac, fiul său, l-a pus pe jertfelnic, deasupra lemnelor.
 
-##### 22:10
+##### 22,10
 Apoi şi-a întins Avraam mâna şi a luat cuţitul, ca să junghie pe fiul său.
 
-##### 22:11
+##### 22,11
 Atunci îngerul Domnului a strigat către el din cer şi a zis: «Avraame, Avraame!». Răspuns-a acesta: «Iată-mă!».
 
-##### 22:12
+##### 22,12
 Iar îngerul a zis: «Să nu-ţi ridici mâna asupra copilului, nici să-i faci vreun rău, căci acum cunosc că te temi de Dumnezeu şi pentru mine n-ai cruţat nici pe singurul fiu al tău».
 
-##### 22:13
+##### 22,13
 Şi ridicându-şi Avraam ochii, a privit, şi iată la spate un berbec încurcat cu coarnele într-un tufiş. Şi ducându-se, Avraam a luat berbecul şi l-a adus jertfă în locul lui Isaac, fiul său.
 
-##### 22:14
+##### 22,14
 Avraam a numit locul acela Iahve-ire, adică, Dumnezeu poartă de grijă şi de aceea se zice astăzi: «În munte Domnul Se arată».
 
-##### 22:15
+##### 22,15
 Şi a strigat a doua oară îngerul Domnului din cer către Avraam şi a zis:
 
-##### 22:16
+##### 22,16
 «Juratu-M-am pe Mine însumi, zice Domnul, că de vreme ce ai făcut aceasta şi n-ai cruţat nici pe singurul tău fiu, pentru Mine,
 
-##### 22:17
+##### 22,17
 De aceea te voi binecuvânta cu binecuvântarea Mea şi voi înmulţi foarte neamul tău, ca să fie ca stelele cerului şi ca nisipul de pe ţărmul mării şi va stăpâni neamul tău cetăţile duşmanilor săi;
 
-##### 22:18
+##### 22,18
 Şi se vor binecuvânta prin neamul tău toate popoarele pământului, pentru că ai ascultat glasul Meu».
 
-##### 22:19
+##### 22,19
 Întorcându-se apoi Avraam la slugile sale, s-au sculat împreună şi s-au dus la Beer-Şeba şi a locuit Avraam acolo în Beer-Şeba.
 
-##### 22:20
+##### 22,20
 Iar după ce s-au petrecut acestea, i s-a vestit lui Avraam, spunându-i-se: «Iată Milca a născut şi ea fii lui Nahor, fratele tău:
 
-##### 22:21
+##### 22,21
 Pe Uţ, întâiul său născut, pe Buz, fratele acestuia şi pe Chemuel, tatăl lui Aram;
 
-##### 22:22
+##### 22,22
 Pe Chesed, pe Hazo, pe Pildaş, pe Idlaf şi pe Batuel.
 
-##### 22:23
+##### 22,23
 Iar lui Batuel i s-a născut Rebeca». Pe aceşti opt fii i-a născut Milca lui Nahor, fratele lui Avraam.
 
-##### 22:24
+##### 22,24
 Iar o ţiitoare a lui, anume Reuma, i-a născut şi ea pe Tebah, pe Gaham, pe Tahaş şi pe Maaca.
 
 
 ## Facerea - 23 - *Moartea și mormântul Sarrei*
 
-##### 23:1
+##### 23,1
 Sarra a trăit o sută douăzeci şi şapte de ani. Aceştia sunt anii vieţii Sarrei.
 
-##### 23:2
+##### 23,2
 Sarra a murit la Chiriat-Arba care e în vale, adică în Hebronul de astăzi, în ţara Canaanului. Şi a venit Avraam să plângă şi să jelească pe Sarra.
 
-##### 23:3
+##### 23,3
 Apoi s-a dus Avraam de la moarta sa, a grăit cu fiii lui Het şi a zis:
 
-##### 23:4
+##### 23,4
 «Eu sunt între voi străin şi pribeag; daţi-mi dar în stăpânire un loc de mormânt la voi, ca să îngrop pe moarta mea».
 
-##### 23:5
+##### 23,5
 Iar fii lui Het au răspuns şi au zis către Avraam:
 
-##### 23:6
+##### 23,6
 «Nu, domnul meu, ci ascultă-ne: Tu aici la noi eşti un voievod al lui Dumnezeu. Deci, îngroapă-ţi moarta în cel mai bun dintre locurile noastre de îngropare, că nici unul dintre noi nu te va opri să-ţi îngropi moarta acolo».
 
-##### 23:7
+##### 23,7
 Atunci s-a sculat Avraam şi s-a închinat poporului țării aceleia, adică fiilor lui Het.
 
-##### 23:8
+##### 23,8
 Şi a grăit către dânşii Avraam şi a zis: «Dacă voiţi din suflet să-mi îngrop pe moarta mea de la ochii mei, atunci ascultaţi-mă şi rugaţi pentru mine pe Efron, fiul lui Ţohar,
 
-##### 23:9
+##### 23,9
 Ca să-mi dea peştera Macpela pe care o are în capătul ţarinei lui, dar să mi-o dea pe bani gata, ca să o am aici la voi în stăpânire de veci pentru îngropare.
 
-##### 23:10
+##### 23,10
 Efron însă şedea atunci în mijlocul fiilor lui Het. Şi a răspuns Efron Heteeanul lui Avraam, în auzul fiilor lui Het şi al tuturor celor ce veniseră la porţile cetăţii lui, şi a zis:
 
-##### 23:11
+##### 23,11
 «Nu, domnul meu, ascultă-mă pe mine: Eu îţi dau ţarina şi peştera cea dintr-însa şi ţi-o dau în fața fiilor poporului; ţi-o dau însă în dar. Îngroapă-ţi pe moarta ta».
 
-##### 23:12
+##### 23,12
 Avraam însă s-a închinat înaintea poporului ţării
 
-##### 23:13
+##### 23,13
 Şi a grăit către Efron în auzul a tot poporul ţinutului aceluia şi a zis: «De binevoieşti, ascultă-mă şi ia de la mine preţul ţarinei şi voi îngropa acolo pe moarta mea».
 
-##### 23:14
+##### 23,14
 Răspuns-a Efron lui Avraam şi i-a zis:
 
-##### 23:15
+##### 23,15
 «Ascultă, domnul meu, ţarina preţuieşte patru sute sicli de argint. Ce este aceasta pentru mine şi pentru tine? Îngroapă-ţi dar pe moarta ta!».
 
-##### 23:16
+##### 23,16
 Atunci, ascultând pe Efron, Avraam a cântărit lui Efron atâta argint, cât a spus el în auzul fiilor lui Het: patru sute sicli de argint, după preţul negustoresc.
 
-##### 23:17
+##### 23,17
 Şi aşa ţarina lui Efron, care e lângă Macpela, în faţa stejarului Mamvri, ţarina şi peştera din ea şi toţi pomii din ţarină şi tot ce era în hotarele ei de jur împrejur
 
-##### 23:18
+##### 23,18
 S-au dat lui Avraam moşie de veci, înaintea fiilor lui Het şi a tuturor celor ce se strânseseră la poarta cetăţii lui.
 
-##### 23:19
+##### 23,19
 După aceasta Avraam a îngropat pe Sarra, femeia sa, în peştera din ţarina Macpela, care e în faţa lui Mamvri sau a Hebronului, în Canaan.
 
-##### 23:20
+##### 23,20
 Astfel a trecut de la fiii lui Het la Avraam ţarina şi peştera cea din ea, ca loc de îngropare.
 
 
 ## Facerea - 24 - *Căsătoria lui Isaac*
 
-##### 24:1
+##### 24,1
 Avraam era acum bătrân şi vechi de zile şi Domnul binecuvântase pe Avraam cu de toate.
 
-##### 24:2
+##### 24,2
 Atunci a zis Avraam către sluga cea mai bătrână din casa sa, care cârmuia toate câte avea: «Pune mâna ta sub coapsa mea
 
-##### 24:3
+##### 24,3
 Şi jură-mi pe Domnul Dumnezeul cerului şi pe Dumnezeul pământului că fiului meu Isaac nu-i vei lua femeie din fetele Canaaneilor, în mijlocul cărora locuiesc eu,
 
-##### 24:4
+##### 24,4
 Ci vei merge în ţara mea, unde m-am născut eu, la rudele mele, şi vei lua de acolo femeie lui Isaac, fiul meu».
 
-##### 24:5
+##### 24,5
 Iar sluga a zis către el: «Dar poate nu va vrea femeia să vină cu mine în pământul acesta; întoarce-voi, oare, pe fiul tău în pământul de unde ai ieşit?».
 
-##### 24:6
+##### 24,6
 Avraam însă a zis către el: «Ia seama să nu întorci pe fiul meu acolo!
 
-##### 24:7
+##### 24,7
 Domnul Dumnezeul cerului şi Dumnezeul pământului, Cel ce m-a luat din casa tatălui meu şi din pământul în care m-am născut, Care mi-a grăit şi Care mi S-a jurat, zicând: ţie-ţi voi da pământul acesta şi urmaşilor tăi, Acela va trimite pe îngerul Său înaintea ta şi vei lua femeie feciorului meu de acolo.
 
-##### 24:8
+##### 24,8
 Iar de nu va voi femeia aceea să vină cu tine în pământul acesta, vei fi slobod de jurământul meu, dar pe fiul meu să nu-l întorci acolo!».
 
-##### 24:9
+##### 24,9
 Şi punându-şi sluga mâna sub coapsa lui Avraam, stăpânul său, i s-a jurat pentru toate acestea.
 
-##### 24:10
+##### 24,10
 Apoi a luat sluga cu sine zece cămile din cămilele stăpânului său şi tot felul de lucruri scumpe de ale stăpânului său şi, sculându-se, s-a dus în Mesopotamia, în cetatea lui Nahor.
 
-##### 24:11
+##### 24,11
 Şi, într-o zi, spre seară, când ies femeile să scoată apă, a poposit cu cămilele la o fântână, afară din cetate.
 
-##### 24:12
+##### 24,12
 Şi a zis: «Doamne Dumnezeul stăpânului meu Avraam, scoate-mi-o în cale astăzi şi fă milă cu stăpânul meu Avraam!
 
-##### 24:13
+##### 24,13
 Iată, eu stau la fântâna aceasta şi fetele locuitorilor cetăţii au să iasă să scoată apă.
 
-##### 24:14
+##### 24,14
 Deci fata căreia îi voi zice: Pleacă urciorul tău să beau şi care-mi va răspunde: «Bea! Ba şi cămilele toate le voi adăpa până se vor sătura», aceea să fie pe care Tu ai rânduit-o robului Tău Isaac şi prin aceasta voi cunoaşte că faci milă cu stăpânul meu Avraam.
 
-##### 24:15
+##### 24,15
 Dar nu sfârşise el încă a cugeta acestea în mintea sa, când iată că ieşi cu urciorul pe umăr Rebeca, fecioara care se născuse lui Batuel, fiul Milcăi, femeia lui Nahor, fratele lui Avraam.
 
-##### 24:16
+##### 24,16
 Aceasta era foarte frumoasă la chip, fecioară, pe care nu o cunoscuse încă un bărbat. Şi venind ea la fântână, şi-a umplut urciorul şi a pornit înapoi.
 
-##### 24:17
+##### 24,17
 Atunci sluga lui Avraam a alergat înaintea ei şi i-a zis: «Dă-mi să beau puţină apă din urciorul tău!».
 
-##### 24:18
+##### 24,18
 Iar ea a zis: «Bea, domnul meu!». Şi îndată şi-a lăsat urciorul pe braţe şi i-a dat să bea apă până a încetat de a mai bea.
 
-##### 24:19
+##### 24,19
 Apoi a zis: «Şi cămilelor tale am să le scot apă până vor bea toate».
 
-##### 24:20
+##### 24,20
 Şi îndată şi-a deşertat urciorul în adăpătoare şi a alergat iar la fântână să scoată apă şi a adăpat toate cămilele.
 
-##### 24:21
+##### 24,21
 Iar omul acela se uita la ea cu mirare şi tăcea, dorind să ştie de i-a binecuvântat Domnul călătoria sau nu.
 
-##### 24:22
+##### 24,22
 Şi dacă au încetat toate cămilele de a mai bea, a luat omul acela şi i-a dat un inel de aur, în greutate de o jumătate siclu, şi două brăţări la mâinile ei, în greutate de zece sicli de aur.
 
-##### 24:23
+##### 24,23
 Apoi a întrebat-o şi a zis: «A cui fată eşti tu? Spune-mi, te rog, dacă se află în casa tatălui tău loc, ca să rămânem?».
 
-##### 24:24
+##### 24,24
 Iar ea i-a zis: «Sunt fata lui Batuel al Milcăi, pe care ea l-a născut lui Nahor».
 
-##### 24:25
+##### 24,25
 Apoi i-a mai zis: «Avem şi paie şi fân mult şi la noi este şi loc, ca să rămâneţi».
 
-##### 24:26
+##### 24,26
 Atunci s-a plecat omul acela şi s-a închinat Domnului şi a zis:
 
-##### 24:27
+##### 24,27
 «Binecuvântat să fie Domnul Dumnezeul stăpânului meu Avraam, Care n-a părăsit pe stăpânul meu cu mila şi bunăvoinţa Sa, de vreme ce m-a adus Domnul drept la casa fratelui stăpânului meu».
 
-##### 24:28
+##### 24,28
 Iar fata a alergat acasă la mama sa şi a povestit toate acestea.
 
-##### 24:29
+##### 24,29
 Rebeca însă avea un frate, anume Laban. Şi a alergat Laban afară, la fântână, la omul acela,
 
-##### 24:30
+##### 24,30
 Căci el văzuse inelul de aur şi brăţările la mâinile surorii sale Rebeca, şi auzise vorbele Rebecăi, sora sa, care spusese: «Aşa şi aşa mi-a vorbit omul acela!». Şi ajungând la el, l-a găsit stând cu cămilele la fântână.
 
-##### 24:31
+##### 24,31
 Şi i-a zis: «Intră, binecuvântatul Domnului! Pentru ce stai afară? Eu ţi-am gătit casă şi sălaş pentru cămilele tale!».
 
-##### 24:32
+##### 24,32
 Şi a intrat omul acela în casă. Iar Laban a luat povara de pe cămile şi le-a dat paie şi fân, iar lui şi oamenilor, care erau cu el, le-a dat apă, ca să-şi spele picioarele.
 
-##### 24:33
+##### 24,33
 Apoi le-a adus de mâncare. Eliezer însă a zis: «Nu voi mânca până nu voi spune la ce am venit». Zis-a Laban: «Spune!».
 
-##### 24:34
+##### 24,34
 Atunci Eliezer a zis: «Eu sunt sluga lui Avraam.
 
-##### 24:35
+##### 24,35
 Domnul a binecuvântat foarte pe stăpânul meu şi l-a mărit şi i-a dat oi şi boi, argint şi aur, robi şi roabe, cămile şi asini.
 
-##### 24:36
+##### 24,36
 Iar Sarra, femeia stăpânului meu, fiind acum bătrână, a născut stăpânului meu un fiu, căruia el i-a dat toate câte are.
 
-##### 24:37
+##### 24,37
 Şi m-a jurat stăpânul meu, zicând: «Să nu iei femeie feciorului meu din fetele Canaaneilor, în pământul cărora trăiesc,
 
-##### 24:38
+##### 24,38
 Ci să mergi la casa tatălui meu, la rudele mele şi să iei de acolo femeie pentru feciorul meu!».
 
-##### 24:39
+##### 24,39
 Iar eu am zis către stăpânul meu: «Dar de nu va vrea femeia să vină cu mine?».
 
-##### 24:40
+##### 24,40
 El însă mi-a răspuns: «Domnul Dumnezeu, înaintea Căruia umblu, va trimite cu tine pe îngerul Său, va binecuvânta calea ta şi vei lua femeie pentru feciorul meu din rudele mele şi din casa tatălui meu.
 
-##### 24:41
+##### 24,41
 Atunci vei fi slobod de jurământul meu, când te vei duce la rudele mele şi de nu ţi-o vor da, vei fi dezlegat de jurământul meu.
 
-##### 24:42
+##### 24,42
 Deci, ajungând eu astăzi la fântână, am zis: «Doamne, Dumnezeul stăpânului meu Avraam, de este să mă faci să izbutesc în calea ce fac,
 
-##### 24:43
+##### 24,43
 Iată, eu stau la fântână; şi fata căreia eu îi voi zice când va veni să scoată apă: «Dă-mi să beau puţină apă din urciorul tău!».
 
-##### 24:44
+##### 24,44
 Iar ea îmi va zice: «Bea şi tu, şi cămilele tale le voi adăpa», aceea să fie femeia, pe care Domnul a rânduit-o pentru Isaac, robul Său şi fiul stăpânului meu, şi prin aceasta voi cunoaşte că Te milostiveşti spre stăpânul meu Avraam.
 
-##### 24:45
+##### 24,45
 Dar nu isprăvisem eu încă a grăi acestea în mintea mea, când iată a ieşit Rebeca, cu urciorul pe umăr; se pogorî la fântână şi scoase apă, şi eu i-am zis: «Dă-mi să beau!».
 
-##### 24:46
+##### 24,46
 Şi ea şi-a lăsat îndată urciorul de pe umăr, zicând: «Bea tu şi cămilele tale le voi adăpa». Şi am băut şi mi-a adăpat şi cămilele.
 
-##### 24:47
+##### 24,47
 Apoi am întrebat-o şi am zis: «A cui fată eşti tu? Spune-mi te rog!». Şi ea a zis: «Sunt fata lui Batuel, fiul lui Nahor, pe care i l-a născut Milca». Atunci i-am dat un inel şi brăţări la mâini.
 
-##### 24:48
+##### 24,48
 După aceea m-am plecat şi m-am închinat Domnului şi am binecuvântat pe Domnul Dumnezeul stăpânului meu Avraam, Care m-a povăţuit de-a dreptul, ca să iau pe fata fratelui stăpânului meu pentru fiul lui.
 
-##### 24:49
+##### 24,49
 Acum deci spuneţi-mi de vreţi să arătaţi milă şi bunăvoinţă stăpânului meu; iar de nu, să caut alta în dreapta şi în stânga».
 
-##### 24:50
+##### 24,50
 Şi răspunzând Laban şi Batuel au zis: «De la Domnul vine lucrul acesta şi noi nu-ţi putem spune nimic nici de bine, nici de rău.
 
-##### 24:51
+##### 24,51
 Iată, Rebeca este înaintea ta, ia-o şi du-te şi să fie soţia fiului stăpânului tău, cum a grăit Domnul!».
 
-##### 24:52
+##### 24,52
 Şi auzind cuvintele lor, sluga lui Avraam s-a închinat Domnului până la pământ.
 
-##### 24:53
+##### 24,53
 Apoi a scos sluga lucruri de argint şi lucruri de aur şi haine şi le-a dat Rebecăi. Dat-a de asemenea daruri şi fratelui şi mamei ei.
 
-##### 24:54
+##### 24,54
 După aceea au mâncat şi au băut, el şi oamenii cei ce erau cu dânsul şi au rămas acolo. Iar dacă s-a sculat dimineaţa, a zis: «Lăsaţi-mă să mă duc la stăpânul meu!».
 
-##### 24:55
+##### 24,55
 Iar fratele şi mama Rebecăi au zis: «Să mai rămână fata cu noi măcar vreo zece zile şi apoi te vei duce!».
 
-##### 24:56
+##### 24,56
 El însă le-a zis: «Nu mă zăboviţi! Căci Domnul m-a făcut să izbutesc în calea mea; lăsaţi-mă să mă duc la stăpânul meu!».
 
-##### 24:57
+##### 24,57
 Răspuns-au ei: «Să chemăm copila şi s-o întrebăm ce gânduri are ea».
 
-##### 24:58
+##### 24,58
 Şi au chemat pe Rebeca şi i-au zis: «Vrei să te duci oare cu omul acesta?». Şi ea a zis: «Mă duc!».
 
-##### 24:59
+##### 24,59
 Atunci a lăsat Laban să plece Rebeca, sora sa, şi doica ei, şi sluga lui Avraam şi cei ce erau cu el.
 
-##### 24:60
+##### 24,60
 Şi au binecuvântat pe Rebeca şi i-au zis: «Sora noastră, să se nască din tine mii şi zeci de mii şi să stăpânească urmaşii tăi porţile vrăjmaşilor lor!».
 
-##### 24:61
+##### 24,61
 Atunci, sculându-se Rebeca şi slujnicele ei şi suindu-se pe cămile, s-au dus cu omul acela, şi sluga lui Avraam, luând pe Rebeca, a plecat.
 
-##### 24:62
+##### 24,62
 Isaac însă venise din Beer-Lahai-Roi, căci el locuia în părţile de miazăzi.
 
-##### 24:63
+##### 24,63
 Iar spre seară a ieşit Isaac la câmp să se plimbe şi, ridicându-şi ochii, a văzut cămilele venind.
 
-##### 24:64
+##### 24,64
 Rebeca însă, căutând, a văzut pe Isaac şi s-a dat jos de pe cămilă
 
-##### 24:65
+##### 24,65
 Şi a zis către slugă: «Cine este omul acela care vine pe câmp în întâmpinarea noastră?». Iar sluga i-a zis: «Acesta-i stăpânul meu!». Atunci ea şi-a luat vălul şi s-a acoperit.
 
-##### 24:66
+##### 24,66
 Şi sluga povesti lui Isaac toate câte făcuse.
 
-##### 24:67
+##### 24,67
 Şi a dus-o Isaac în cortul mamei sale Sarra şi a luat pe Rebeca şi aceasta s-a făcut femeia lui şi a iubit-o. Şi s-a mângâiat Isaac de pierderea mamei sale, Sarra.
 
 
 ## Facerea - 25 - *Căsătoria a doua a lui Avraam. Moartea lui Avraam*
 
-##### 25:1
+##### 25,1
 Avraam însă şi-a mai luat o femeie cu numele Chetura.
 
-##### 25:2
+##### 25,2
 Ea i-a născut pe Zimran, Iocşan, Madan, Madian, Işbac şi pe Şuah.
 
-##### 25:3
+##### 25,3
 Lui Iocşan i s-au născut Şeba, Teman şi Dedan. Iar fiii lui Dedan au fost: Raguil, Navdeel, Aşurim, Letuşim şi Leumim.
 
-##### 25:4
+##### 25,4
 Iar fiii lui Madian au fost: Efa, Efer, Enoh, Abida şi Eldaa. Aceştia toţi au fost fiii Cheturei.
 
-##### 25:5
+##### 25,5
 Însă Avraam a dat toate averile sale fiului său Isaac.
 
-##### 25:6
+##### 25,6
 Iar fiilor ţiitoarelor sale, Avraam le-a făcut daruri şi, încă fiind el în viaţă, i-a trimis departe de la Isaac, fiul său, spre răsărit, în pământul Răsăritului.
 
-##### 25:7
+##### 25,7
 Zilele vieţii lui Avraam, câte le-a trăit, au fost o sută şaptezeci şi cinci de ani.
 
-##### 25:8
+##### 25,8
 Apoi, slăbind, Avraam a murit la bătrâneţi adânci, sătul de zile şi s-a adăugat la poporul său.
 
-##### 25:9
+##### 25,9
 Şi l-au îngropat feciorii lui, Isaac şi Ismael, în peştera Macpela, din ţarina lui Efron, fiul lui Ţohar Heteeanul, în faţa stejarului Mamvri;
 
-##### 25:10
+##### 25,10
 Deci în ţarina şi în peştera pe care Avraam a cumpărat-o de la fiii lui Het, acolo sunt îngropaţi Avraam şi Sarra, femeia lui.
 
-##### 25:11
+##### 25,11
 Iar după moartea lui Avraam, a binecuvântat Dumnezeu pe Isaac, fiul lui. Şi locuia Isaac la Beer-Lahai-Roi.
 
-##### 25:12
+##### 25,12
 Iată acum şi viaţa lui Ismael, fiul lui Avraam, pe care l-a născut lui Avraam egipteanca Agar, slujnica Sarrei;
 
-##### 25:13
+##### 25,13
 Şi iată numele fiilor lui Ismael, după şirul naşterii lor: întâiul născut al lui Ismael a fost Nebaiot; după el urmează Chedar, Adbeel şi Mibsam,
 
-##### 25:14
+##### 25,14
 Mişma, Duma şi Masa,
 
-##### 25:15
+##### 25,15
 Hadad, Tema, Etur, Nafiş şi Chedma.
 
-##### 25:16
+##### 25,16
 Aceştia sunt fiii lui Ismael şi acestea sunt numele lor, după aşezările lor şi după taberele lor. Aceştia sunt cei doisprezece voievozi ai seminţiilor lor.
 
-##### 25:17
+##### 25,17
 Iar anii vieţii lui Ismael au fost o sută treizeci şi şapte şi, îmbătrânind, a murit şi a trecut la părinţii săi;
 
-##### 25:18
+##### 25,18
 Iar urmaşii săi s-au întins de la Havila până la Sur, care este în faţa Egiptului, pe drumul ce duce spre Asiria; şi s-au sălăşluit ei înaintea tuturor fraţilor lor.
 
-##### 25:19
+##### 25,19
 Iar spiţa neamului lui Isaac, fiul lui Avraam, este aceasta: lui Avraam i s-a născut Isaac.
 
-##### 25:20
+##### 25,20
 Isaac însă era de patruzeci de ani, când şi-a luat de femeie pe Rebeca, fata lui Batuel Arameul din Mesopotamia şi sora lui Laban Arameul.
 
-##### 25:21
+##### 25,21
 Şi s-a rugat Isaac Domnului pentru Rebeca, femeia sa, că era stearpă; şi l-a auzit Domnul şi femeia lui Rebeca a zămislit.
 
-##### 25:22
+##### 25,22
 Dar copiii au început a se zbate în pântecele ei şi ea a zis: «Dacă aşa au să fie, atunci la ce mai am această sarcină?». Şi s-a dus să întrebe pe Domnul.
 
-##### 25:23
+##### 25,23
 Domnul însă i-a zis: «În pântecele tău sunt două neamuri şi două popoare se vor ridica din pântecele tău; un popor va ajunge mai puternic decât celălalt şi cel mai mare va sluji celui mai mic!».
 
-##### 25:24
+##### 25,24
 Şi i-a venit Rebecăi vremea să nască şi iată erau în pântecele ei doi gemeni.
 
-##### 25:25
+##### 25,25
 Şi cel dintâi care a ieşit era roşu şi peste tot păros, ca o pielicică, şi i-a pus numele Isav.
 
-##### 25:26
+##### 25,26
 După aceea a ieşit fratele acestuia, ţinându-se cu mâna de călcâiul lui Isav; şi i s-a pus numele Iacov. Isaac însă era de şaizeci de ani, când i s-au născut aceştia din Rebeca.
 
-##### 25:27
+##### 25,27
 Copiii aceştia au crescut şi a ajuns Isav om iscusit la vânătoare, trăind pe câmpii; iar Iacov era om liniştit, trăind în corturi.
 
-##### 25:28
+##### 25,28
 Isaac iubea pe Isav, pentru că îi plăcea vânatul acestuia; iar Rebeca iubea pe Iacov.
 
-##### 25:29
+##### 25,29
 O dată însă a fiert Iacov linte, iar Isav a venit ostenit de la câmp.
 
-##### 25:30
+##### 25,30
 Şi a zis Isav către Iacov: «Dă-mi să mănânc din această fiertură roşie, că sunt flămând!». De aceea Isav s-a mai numit şi Edom.
 
-##### 25:31
+##### 25,31
 Iacov însă i-a răspuns lui Isav: «Vinde-mi mai întâi dreptul tău de întâi-născut!».
 
-##### 25:32
+##### 25,32
 Şi Isav a răspuns: «Iată eu mor. La ce mi-e bun dreptul de întâi-născut?».
 
-##### 25:33
+##### 25,33
 Zisu-i-a Iacov: «Jură-mi-te acum!». Şi i s-a jurat Isav şi a vândut lui Iacov dreptul său de întâi-născut.
 
-##### 25:34
+##### 25,34
 Atunci Iacov a dat lui Isav pâine şi fiertură de linte şi acesta a mâncat şi a băut, apoi s-a sculat şi s-a dus. Şi astfel a nesocotit Isav dreptul său de întâi-născut.
 
 
 ## Facerea - 26 - *Isaac în țara Filistenilor. Legământul cu Abimelec*
 
-##### 26:1
+##### 26,1
 Şi a fost o foamete în ţară, afară de foametea cea dintâi, care se întâmplase în zilele lui Avraam. Atunci s-a dus Isaac în Gherara, la Abimelec, regele Filistenilor.
 
-##### 26:2
+##### 26,2
 Atunci Domnul i S-a arătat şi i-a zis: «Să nu te duci în Egipt, ci să locuieşti în ţară, unde-ţi voi zice Eu.
 
-##### 26:3
+##### 26,3
 Locuieşte în ţara aceasta şi Eu voi fi cu tine şi te voi binecuvânta, că ţie şi urmaşilor tăi voi da toate ţinuturile acestea şi-Mi voi împlini jurământul cu care M-am jurat lui Avraam, tatăl tău.
 
-##### 26:4
+##### 26,4
 Voi înmulţi pe urmaşii tăi ca stelele cerului şi voi da urmaşilor tăi toate ţinuturile acestea; şi se vor binecuvânta întru urmaşii tăi toate popoarele pământului,
 
-##### 26:5
+##### 26,5
 Pentru că Avraam, tatăl tău, a ascultat cuvântul Meu şi a păzit poruncile Mele, poveţele Mele, îndreptările Mele şi legile Mele!».
 
-##### 26:6
+##### 26,6
 De aceea s-a aşezat Isaac în Gherara.
 
-##### 26:7
+##### 26,7
 Iar locuitorii ţinutului aceluia l-au întrebat despre Rebeca, femeia sa, cine e şi el a zis: «Aceasta este sora mea!», căci s-a temut să zică: «E femeia mea!», ca nu cumva să-l omoare oamenii locului aceluia din pricina Rebecăi, pentru că era frumoasă la chip.
 
-##### 26:8
+##### 26,8
 Dar după ce a trăit el acolo multă vreme, s-a întâmplat că Abimelec, regele Filistenilor, să se uite pe fereastră şi să vadă pe Isaac jucându-se cu Rebeca, femeia sa.
 
-##### 26:9
+##### 26,9
 Atunci a chemat Abimelec pe Isaac şi i-a zis: «Adevărat e că-i femeia ta? De ce dar ai zis: «Aceasta-i sora mea?». Şi Isaac a răspuns: «Pentru că mă temeam să nu fiu omorât din pricina ei».
 
-##### 26:10
+##### 26,10
 Zisu-i-a Abimelec: «Pentru ce ne-ai făcut aceasta? Puţin a lipsit ca cineva din neamul meu să se fi culcat cu femeia ta şi ne-ai fi făcut să săvârşim păcat».
 
-##### 26:11
+##### 26,11
 Apoi a dat Abimelec poruncă la tot poporul său, zicând: «Tot cel ce se va atinge de omul acesta şi de femeia lui va fi vinovat morţii».
 
-##### 26:12
+##### 26,12
 Şi a semănat Isaac în pământul acela şi a cules anul acela rod însutit. Domnul l-a binecuvântat,
 
-##### 26:13
+##### 26,13
 Şi omul acela a ajuns bogat şi a sporit tot mai mult, până ce a ajuns bogat foarte.
 
-##### 26:14
+##### 26,14
 Avea turme de oi, cirezi de vite şi ogoare multe, încât îl pizmuiau Filistenii.
 
-##### 26:15
+##### 26,15
 Toate fântânile, pe care le săpaseră robii tatălui său, în zilele lui Avraam, tatăl său, Filistenii le-au stricat şi le-au umplut cu pământ.
 
-##### 26:16
+##### 26,16
 Atunci a zis Abimelec către Isaac: «Du-te de la noi, că te-ai făcut mult mai tare decât noi!».
 
-##### 26:17
+##### 26,17
 Şi s-a dus Isaac de acolo şi, tăbărând în valea Gherara, a locuit acolo.
 
-##### 26:18
+##### 26,18
 Apoi a săpat Isaac din nou fântânile de apă, pe care le săpaseră robii lui Avraam, tatăl său, şi pe care le astupaseră Filistenii după moartea lui Avraam, tatăl său, şi le-a numit cu aceleaşi nume, cu care le numise Avraam, tatăl său.
 
-##### 26:19
+##### 26,19
 După aceea au mai săpat slugile lui Isaac şi în valea Gherara şi au aflat acolo izvor de apă bună de băut.
 
-##### 26:20
+##### 26,20
 Dar se certau ciobanii din Gherara cu ciobanii lui Isaac, zicând: «Apa este a noastră!». De aceea Isaac a pus fântânii aceleia numele Esec, din pricină că se sfădiseră pentru ea.
 
-##### 26:21
+##### 26,21
 Ducându-se apoi de acolo, Isaac a săpat altă fântână şi se certau şi de la aceasta. De aceea Isaac i-a pus numele Sitna.
 
-##### 26:22
+##### 26,22
 Apoi s-a mutat şi de aici şi a săpat altă fântână, pentru care nu s-au mai certat, şi i-a pus numele Rehobot, căci îşi zicea: «Datu-ne-a astăzi Domnul loc larg şi vom spori pe pământ».
 
-##### 26:23
+##### 26,23
 De aici Isaac s-a urcat către Beer-Şeba.
 
-##### 26:24
+##### 26,24
 În noaptea aceea i S-a arătat Domnul şi i-a zis: «Eu sunt Dumnezeul lui Avraam, tatăl tău! Nu te teme, că Eu sunt cu tine şi te voi binecuvânta şi voi înmulţi pe urmaşii tăi, pentru Avraam, sluga Mea».
 
-##### 26:25
+##### 26,25
 Acolo a făcut Isaac jertfelnic şi a chemat numele Domnului şi îşi întinse acolo cortul său. Şi au săpat acolo slugile lui Isaac o fântână, în valea Gherarei.
 
-##### 26:26
+##### 26,26
 Atunci au venit din Gherara la el: Abimelec şi Ahuzat, care luase pe nora lui, şi Ficol, căpetenia oştirii lui.
 
-##### 26:27
+##### 26,27
 Iar Isaac le-a zis: «La ce aţi venit la mine, voi care mă urâţi şi m-aţi alungat de la voi?».
 
-##### 26:28
+##### 26,28
 Iar ei au zis: «Am văzut bine că Domnul este cu tine şi am zis să facem cu tine jurământ şi să încheiem legământ cu tine,
 
-##### 26:29
+##### 26,29
 Ca tu să nu ne faci niciun rău, cum nici noi nu ne-am atins de tine, ci ți-am făcut bine şi te-am scos de la noi cu pace; şi acum eşti binecuvântat de Domnul».
 
-##### 26:30
+##### 26,30
 Atunci Isaac le-a făcut ospăţ şi ei au mâncat şi au băut.
 
-##### 26:31
+##### 26,31
 Sculându-se apoi a doua zi de dimineaţă, au jurat unul altuia. Şi le-a dat drumul Isaac şi ei s-au dus de la dânsul cu pace.
 
-##### 26:32
+##### 26,32
 Tot în ziua aceea venind slugile lui Isaac, l-au vestit de fântâna ce o săpaseră şi au zis: «Am găsit apă!».
 
-##### 26:33
+##### 26,33
 Şi a numit Isaac fântâna aceea Şibea, adică jurământ. De aceea se şi numeşte cetatea aceea Beer-Şeba, adică fântâna jurământului, până în ziua de astăzi.
 
-##### 26:34
+##### 26,34
 Iar Isav, fiind acum de patruzeci de ani, şi-a luat două femei: pe Iudit, fata lui Beeri Heteul, şi pe Basemata, fata lui Elon Heteul.
 
-##### 26:35
+##### 26,35
 Dar ele amărau pe Isaac şi pe Rebeca.
 
 
 ## Facerea - 27 - *Isaac binecuvintează pe Iacov*
 
-##### 27:1
+##### 27,1
 Iar după ce a îmbătrânit Isaac şi au slăbit vederile ochilor săi, a chemat pe Isav, pe fiul său cel mai mare, şi i-a zis: «Fiul meu!». Zis-a acela: «Iată-mă!».
 
-##### 27:2
+##### 27,2
 Şi Isaac a zis: «Iată, eu am îmbătrânit şi nu ştiu ziua morţii mele.
 
-##### 27:3
+##### 27,3
 Ia-ţi dară uneltele tale, tolba şi arcul, şi ieşi la câmp şi adu-mi ceva vânat;
 
-##### 27:4
+##### 27,4
 Să-mi faci mâncare, cum îmi place mie, şi adu-mi să mănânc, ca să te binecuvânteze sufletul meu până nu mor!».
 
-##### 27:5
+##### 27,5
 Rebeca însă a auzit ce a zis Isaac către fiul său Isav. S-a dus deci Isav la câmp să vâneze ceva pentru tatăl său;
 
-##### 27:6
+##### 27,6
 Iar Rebeca a zis către Iacov, fiul cel mai mic: «Iată, eu am auzit pe tatăl tău grăind cu Isav, fratele tău, şi zicând:
 
-##### 27:7
+##### 27,7
 «Adu vânat şi fă-mi o mâncare să mănânc şi să te binecuvântez înaintea Domnului, până a nu muri».
 
-##### 27:8
+##### 27,8
 Acum dar, fiul meu, ascultă ce am să-ţi poruncesc:
 
-##### 27:9
+##### 27,9
 Du-te la turmă, adu-mi de acolo doi iezi tineri şi buni şi voi face din ei mâncare, cum îi place tatălui tău;
 
-##### 27:10
+##### 27,10
 Iar tu o vei duce tatălui tău să mănânce, ca să te binecuvânteze tatăl tău înainte de a muri».
 
-##### 27:11
+##### 27,11
 Iacov însă a zis către Rebeca, mama sa: «Isav, fratele meu, e om păros, iar eu n-am păr.
 
-##### 27:12
+##### 27,12
 Nu cumva tatăl meu să mă pipăie şi voi fi în ochii lui ca un înşelător şi în loc de binecuvântare, voi atrage asupră-mi blestem».
 
-##### 27:13
+##### 27,13
 Zis-a mama sa: «Fiul meu, asupra mea să fie blestemul acela; ascultă numai povaţa mea şi du-te şi adu-mi iezii!».
 
-##### 27:14
+##### 27,14
 Atunci, ducându-se Iacov, a luat şi a adus mamei sale iezii, iar mama sa a gătit mâncare, cum îi plăcea tatălui lui.
 
-##### 27:15
+##### 27,15
 Apoi a luat Rebeca haina cea mai frumoasă a lui Isav, fiul ei cel mai mare, care era la ea în casă, şi a îmbrăcat pe Iacov, fiul ei cel mai mic;
 
-##### 27:16
+##### 27,16
 Iar cu pieile iezilor a înfăşurat braţele şi părţile goale ale gâtului lui.
 
-##### 27:17
+##### 27,17
 Şi a dat mâncarea şi pâinea ce gătise în mâinile lui Iacov, fiul său,
 
-##### 27:18
+##### 27,18
 Şi acesta a intrat la tatăl său şi a zis: «Tată!». Iar acela a răspuns: «Iată-mă! Cine eşti tu, copilul meu?».
 
-##### 27:19
+##### 27,19
 Zis-a Iacov către tatăl său: «Eu sunt Isav, întâiul tău născut. Am făcut precum mi-ai poruncit; scoală şi şezi de mănâncă din vânatul meu, ca să mă binecuvânteze sufletul tău!».
 
-##### 27:20
+##### 27,20
 Zis-a Isaac către fiul său: «Cum l-ai găsit aşa curând, fiul meu?». Şi acesta a zis: «Domnul Dumnezeul tău mi l-a scos înainte».
 
-##### 27:21
+##### 27,21
 Zis-a Isaac iarăşi către Iacov: «Apropie-te să te pipăi, fiul meu, de eşti tu fiul meu Isav sau nu».
 
-##### 27:22
+##### 27,22
 Şi s-a apropiat Iacov de Isaac, tatăl său, iar acesta l-a pipăit şi a zis: «Glasul este glasul lui Iacov, iar mâinile sunt mâinile lui Isav».
 
-##### 27:23
+##### 27,23
 Dar nu l-a cunoscut, pentru că mâinile lui erau păroase, ca mâinile fratelui său Isav; şi l-a binecuvântat.
 
-##### 27:24
+##### 27,24
 Şi a mai zis: «Tu oare eşti fiul meu Isav?». Şi Iacov a răspuns: «Eu».
 
-##### 27:25
+##### 27,25
 Zis-a Isaac: «Adu-mi şi voi mânca din vânatul fiului meu, ca să te binecuvânteze sufletul meu!». Şi i-a adus şi a mâncat; apoi i-a adus şi vin şi a băut.
 
-##### 27:26
+##### 27,26
 După aceea Isaac, tatăl său, i-a zis: «Apropie-te, fiule, şi mă sărută!».
 
-##### 27:27
+##### 27,27
 Atunci s-a apropiat Iacov şi l-a sărutat. Şi a simţit Isaac mirosul hainei lui şi l-a binecuvântat şi a zis: «Iată, mirosul fiului meu e ca mirosul unui câmp bogat, pe care l-a binecuvântat Domnul.
 
-##### 27:28
+##### 27,28
 Să-ţi dea ţie Dumnezeu din roua cerului şi din belşugul pământului, pâine multă şi vin.
 
-##### 27:29
+##### 27,29
 Să-ţi slujească popoarele şi căpeteniile să se închine înaintea ta; să fii stăpân peste fraţii tăi şi feciorii mamei tale să ţi se închine ţie; cel ce te va blestema să fie blestemat şi binecuvântat să fie cel ce te va binecuvânta!».
 
-##### 27:30
+##### 27,30
 Îndată ce a isprăvit Isaac de binecuvântat pe Iacov, fiul său, şi cum a ieşit Iacov de la faţa tatălui său Isaac, a venit şi Isav cu vânatul lui.
 
-##### 27:31
+##### 27,31
 A făcut şi el bucate şi le-a adus tatălui său şi a zis către tatăl său: «Scoală, tată, şi mănâncă din vânatul fiului tău, ca să mă binecuvânteze sufletul tău!».
 
-##### 27:32
+##### 27,32
 Iar Isaac, tatăl său, i-a zis: «Cine eşti tu?». Iar el a zis: «Eu sunt Isav, fiul tău cel întâi-născut!».
 
-##### 27:33
+##### 27,33
 Atunci s-a cutremurat Isaac cu cutremur mare foarte şi a zis: «Dar cine-i acela, care a căutat şi mi-a adus vânat şi am mâncat de la el înainte de a veni tu şi l-am binecuvântat şi binecuvântat va fi?».
 
-##### 27:34
+##### 27,34
 Iar Isav, auzind cuvintele tatălui său Isaac, a strigat cu glas mare şi foarte dureros şi a zis către tatăl său: «Binecuvântează-mă şi pe mine, tată!».
 
-##### 27:35
+##### 27,35
 Zis-a Isaac către el: «A venit fratele tău cu înşelăciune şi a luat binecuvântarea ta».
 
-##### 27:36
+##### 27,36
 Iar Isav a zis: «Din pricină oare că-l cheamă Iacov, de aceea m-a înşelat de două ori? Deunăzi mi-a răpit dreptul de întâi-născut, iar acum mi-a răpit binecuvântarea mea». Apoi a zis Isav către tatăl său: «Nu mi-ai păstrat şi mie binecuvântare, tată?».
 
-##### 27:37
+##### 27,37
 Răspuns-a Isaac şi a zis lui Isav: «Iată, stăpân l-am făcut peste tine şi pe toţi fraţii lui i-am făcut lui robi; cu pâine şi cu vin l-am dăruit. Dar cu tine ce să fac, fiul meu?».
 
-##### 27:38
+##### 27,38
 Şi a zis Isav către tatăl său: «Tată, oare numai o binecuvântare ai tu? Binecuvântează-mă şi pe mine, tată!» Şi cum Isaac tăcea, Isav şi-a ridicat glasul şi a început a plânge.
 
-##### 27:39
+##### 27,39
 Atunci, răspunzând Isaac, tatăl lui, a zis către el: «Iată, locuinţa ta va fi un pământ mănos şi cerul îţi va trimite roua sa;
 
-##### 27:40
+##### 27,40
 Cu sabia ta vei trăi şi vei fi supus fratelui tău; va veni însă vremea când te vei ridica şi vei sfărâma jugul lui de pe grumazul tău».
 
-##### 27:41
+##### 27,41
 De aceea ura Isav pe Iacov pentru binecuvântarea cu care-l binecuvântase tatăl său. Şi a zis Isav în cugetul său: «Se apropie zilele de jelire pentru tatăl meu; atunci am să ucid pe Iacov, fratele meu!».
 
-##### 27:42
+##### 27,42
 Dar i s-a spus Rebecăi cuvintele lui Isav, fiul cel mai mare, şi ea a trimis de a chemat pe Iacov, fiul ei cel mai mic, şi i-a zis: «Iată Isav, fratele tău, vrea să se răzbune pe tine, omorându-te.
 
-##### 27:43
+##### 27,43
 Acum dar, fiul meu, ascultă povaţa mea şi, sculându-te, fugi la Haran, în Mesopotamia, la fratele meu Laban,
 
-##### 27:44
+##### 27,44
 Şi stai la el câtva timp, până se va potoli mânia fratelui tău
 
-##### 27:45
+##### 27,45
 Şi până va mai uita el ce i-ai făcut. Atunci voi trimite şi te voi lua de acolo. Pentru ce să rămân eu într-o singură zi fără de voi amândoi?».
 
-##### 27:46
+##### 27,46
 Apoi Rebeca a zis către Isaac: «Sunt scârbită de viaţa mea, din pricina fetelor Heteilor. Dacă-şi ia şi Iacov femeie ca acestea, din fetele pământului acestuia, atunci la ce-mi mai e bună viaţa?».
 
 
 ## Facerea - 28 - *Iacov în Mesopotamia*
 
-##### 28:1
+##### 28,1
 Atunci a chemat Isaac pe Iacov şi l-a binecuvântat şi i-a poruncit, zicând: «Să nu-ţi iei femeie din fetele Canaaneilor;
 
-##### 28:2
+##### 28,2
 Ci scoală şi mergi în Mesopotamia în casa lui Batuel, tatăl mamei tale, şi-ţi ia femeie de acolo, din fetele lui Laban, fratele mamei tale,
 
-##### 28:3
+##### 28,3
 Şi Dumnezeul cel Atotputernic să te binecuvânteze, să te crească şi să te înmulţească şi să răsară din tine popoare multe;
 
-##### 28:4
+##### 28,4
 Să-ţi dea binecuvântarea lui Avraam, tatăl meu, ţie şi urmaşilor tăi ca să stăpâneşti pământul ce-l locuieşti acum şi pe care l-a dat Dumnezeu lui Avraam,
 
-##### 28:5
+##### 28,5
 Şi aşa Isaac i-a dat drumul lui Iacov, iar acesta s-a dus în Mesopotamia, la Laban, fiul lui Batuel Arameul şi fratele Rebecăi, mama lui Iacov şi a lui Isav.
 
-##### 28:6
+##### 28,6
 Văzând însă Isav că Isaac a binecuvântat pe Iacov şi l-a trimis în Mesopotamia, să-şi ia femeie de acolo, pentru care l-a binecuvântat şi i-a poruncit, zicând: «Să nu-ţi iei femeie din fetele Canaaneilor»,
 
-##### 28:7
+##### 28,7
 Şi că Iacov a ascultat pe tatăl său şi pe mama sa şi s-a dus în Mesopotamia,
 
-##### 28:8
+##### 28,8
 Şi înţelegând Isav că lui Isaac, tatăl său, nu-i plac fetele Canaaneilor,
 
-##### 28:9
+##### 28,9
 S-a dus la Ismael şi, pe lângă cele două femei ale sale, şi-a mai luat şi pe Mahalat, fata lui Ismael, fiul lui Avraam, şi sora lui Nebaiot.
 
-##### 28:10
+##### 28,10
 Iar Iacov ieşind din Beer-Şeba, s-a dus în Haran.
 
-##### 28:11
+##### 28,11
 Ajungând însă la un loc, a rămas să doarmă acolo, căci asfinţise soarele. Şi luând una din pietrele locului aceluia şi punându-şi-o căpătâi, s-a culcat în locul acela.
 
-##### 28:12
+##### 28,12
 Şi a visat că era o scară, sprijinită pe pământ, iar cu vârful atingea cerul; iar îngerii lui Dumnezeu se suiau şi se pogorau pe ea.
 
-##### 28:13
+##### 28,13
 Apoi S-a arătat Domnul în capul scării şi i-a zis: «Eu sunt Domnul, Dumnezeul lui Avraam, tatăl tău, şi Dumnezeul lui Isaac. Nu te teme! Pământul pe care dormi ţi-l voi da ţie şi urmaşilor tăi.
 
-##### 28:14
+##### 28,14
 Urmaşii tăi vor fi mulţi ca pulberea pământului şi tu te vei întinde la apus şi la răsărit, la miazănoapte şi la miazăzi, şi se vor binecuvânta întru tine şi întru urmaşii tăi toate neamurile pământului.
 
-##### 28:15
+##### 28,15
 Iată, Eu sunt cu tine şi te voi păzi în orice cale vei merge; te voi întoarce în pământul acesta şi nu te voi lăsa până nu voi împlini toate câte ţi-am spus».
 
-##### 28:16
+##### 28,16
 Iar când s-a deşteptat din somnul său, Iacov a zis: «Domnul este cu adevărat în locul acesta şi eu n-am ştiut!».
 
-##### 28:17
+##### 28,17
 Şi, spăimântându-se Iacov, a zis: «Cât de înfricoşător este locul acesta! Aceasta nu e alta fără numai casa lui Dumnezeu, aceasta e poarta cerului!».
 
-##### 28:18
+##### 28,18
 Apoi s-a sculat Iacov dis-de-dimineaţă, a luat piatra ce şi-o pusese căpătâi, a pus-o stâlp şi a turnat pe vârful ei untdelemn.
 
-##### 28:19
+##### 28,19
 Iacov a pus locului aceluia numele Betel (*casa lui Dumnezeu*), căci mai înainte cetatea aceea se numea Luz.
 
-##### 28:20
+##### 28,20
 Şi a făcut Iacov făgăduinţă, zicând: «De va fi Domnul Dumnezeu cu mine şi mă va povăţui în calea aceasta, în care merg eu astăzi, de-mi va da pâine să mănânc şi haine să mă îmbrac;
 
-##### 28:21
+##### 28,21
 Şi de mă voi întoarce sănătos la casa tatălui meu, atunci Domnul va fi Dumnezeul meu.
 
-##### 28:22
+##### 28,22
 Iar piatra aceasta, pe care am pus-o stâlp, va fi pentru mine casa lui Dumnezeu şi din toate câte-mi vei da Tu mie, a zecea parte o voi da Ţie».
 
 
 ## Facerea - 29 - *Iacov la Laban*
 
-##### 29:1
+##### 29,1
 Sculându-se apoi, Iacov s-a dus în pământul fiilor Răsăritului, la Laban, fiul lui Batuel Arameul şi fratele Rebecăi, mama lui Iacov şi a lui Isav.
 
-##### 29:2
+##### 29,2
 Şi căutând el odată, iată în câmp o fântână, iar lângă ea trei turme de oi culcate; căci din fântâna aceea se adăpau turmele şi pe gura fântânii era o piatră mare.
 
-##### 29:3
+##### 29,3
 Când se adunau acolo toate turmele, ciobanii prăvăleau piatra de pe gura fântânii şi adăpau oile, apoi iar puneau piatra la locul ei pe gura fântânii.
 
-##### 29:4
+##### 29,4
 Deci a zis Iacov către păstori: «Fraţilor, de unde sunteţi voi?». Iar ei au zis: «Noi suntem din Haran».
 
-##### 29:5
+##### 29,5
 Şi el le-a zis: «Cunoaşteţi voi pe Laban, feciorul lui Nahor?». Răspuns-au aceia: «Îl cunoaştem».
 
-##### 29:6
+##### 29,6
 Zis-a iarăşi Iacov: «E sănătos?». Şi ei au zis: «Sănătos. Iată Rahila, fata lui, vine cu oile».
 
-##### 29:7
+##### 29,7
 Zis-a Iacov către ei: «Mai e încă mult din zi şi nu e încă vremea să se adune turmele; adăpaţi oile şi duceţi-vă de le paşteţi».
 
-##### 29:8
+##### 29,8
 Iar ei au zis: «Până nu se adună toţi păstorii, nu putem să prăvălim piatra de pe gura fântânii, ca să adăpăm oile!».
 
-##### 29:9
+##### 29,9
 Încă grăind el cu ei, iată a venit Rahila, fiica lui Laban, cu oile tatălui său, căci ea păştea oile tatălui său.
 
-##### 29:10
+##### 29,10
 Văzând Iacov pe Rahila, fiica lui Laban, fratele mamei sale, şi oile lui Laban, fratele mamei sale, s-a apropiat Iacov şi a prăvălit piatra de pe gura fântânii şi a adăpat oile lui Laban, fratele mamei sale.
 
-##### 29:11
+##### 29,11
 Şi a sărutat Iacov pe Rahila şi şi-a ridicat glasul şi a plâns.
 
-##### 29:12
+##### 29,12
 Apoi a spus Rahilei că-i rudă cu tatăl ei şi că-i fiul Rebecăi. Iar ea a alergat şi a spus tatălui său toate acestea.
 
-##### 29:13
+##### 29,13
 Auzind Laban de sosirea lui Iacov, fiul surorii sale, a alergat în întâmpinarea lui şi, îmbrăţişându-l, l-a sărutat şi l-a adus în casa sa şi el a povestit lui Laban toate.
 
-##### 29:14
+##### 29,14
 Iar Laban i-a zis: «Tu eşti din oasele mele şi din carnea mea». Şi a stat Iacov la el o lună de zile.
 
-##### 29:15
+##### 29,15
 Atunci Laban a zis către Iacov: «Au doară îmi vei sluji în dar, pentru că îmi eşti rudă? Spune-mi, care-ţi va fi simbria?».
 
-##### 29:16
+##### 29,16
 Laban însă avea două fete: pe cea mai mare o chema Lia şi pe cea mai mică o chema Rahila.
 
-##### 29:17
+##### 29,17
 Lia era bolnavă de ochi, iar Rahila era chipeşă la statură şi tare frumoasă la față.
 
-##### 29:18
+##### 29,18
 Lui Iacov însă îi era dragă Rahila şi a zis: «Îţi voi sluji şapte ani pentru Rahila, fata ta cea mai mică».
 
-##### 29:19
+##### 29,19
 Zisu-i-a Laban: «Mai bine s-o dau după tine decât s-o dau după alt bărbat. Rămâi la mine!».
 
-##### 29:20
+##### 29,20
 Şi a slujit Iacov pentru Rahila şapte ani şi i s-a părut numai câteva zile, pentru că o iubea.
 
-##### 29:21
+##### 29,21
 Apoi a zis Iacov către Laban: «Dă-mi femeia, că mi s-au împlinit zilele să intru la ea».
 
-##### 29:22
+##### 29,22
 Atunci a chemat Laban pe toţi oamenii locului aceluia şi a făcut ospăţ.
 
-##### 29:23
+##### 29,23
 Iar seara a luat Laban pe fiica sa Lia şi a băgat-o înăuntru şi a intrat Iacov la ea.
 
-##### 29:24
+##### 29,24
 Şi Laban a dat pe roaba sa Zilpa, roabă fiicei sale Lia.
 
-##### 29:25
+##### 29,25
 Dar când s-a făcut ziuă, iată era Lia. Şi a zis Iacov către Laban: «Pentru ce mi-ai făcut aceasta? Nu ți-am slujit eu oare pentru Rahila? Pentru ce m-ai înşelat?».
 
-##### 29:26
+##### 29,26
 Răspuns-a Laban: «Aici la noi nu se pomeneşte să se mărite fata cea mai mică înaintea celei mai mari.
 
-##### 29:27
+##### 29,27
 Împlineşte această săptămână de nuntă şi-ţi voi da-o şi pe aceea, pentru slujba ce-mi vei mai face alţi şapte ani!».
 
-##### 29:28
+##### 29,28
 Şi a făcut Iacov aşa; a împlinit săptămâna de nuntă şi i-a dat Laban şi pe Rahila, fiica sa, de femeie.
 
-##### 29:29
+##### 29,29
 Atunci a dat Laban pe roaba sa Bilha, roabă fiicei sale Rahila.
 
-##### 29:30
+##### 29,30
 A intrat deci Iacov şi la Rahila şi iubea el pe Rahila mai mult decât pe Lia. Apoi a mai slujit Iacov lui Laban alţi şapte ani.
 
-##### 29:31
+##### 29,31
 Văzând însă Domnul Dumnezeu că Lia era dispreţuită, a deschis pântecele ei, iar Rahila fu stearpă.
 
-##### 29:32
+##### 29,32
 A zămislit deci Lia şi a născut lui Iacov un fiu, căruia i-a pus numele Ruben, zicând: «A căutat Domnul la smerenia mea şi mi-a dat fiu; de acum mă va iubi bărbatul meu».
 
-##### 29:33
+##### 29,33
 Apoi a zămislit Lia iarăşi şi a născut lui Iacov al doilea fiu şi a zis: «Auzit-a Domnul că nu sunt iubită şi mi-a dat şi pe acesta». Şi i-a pus numele Simeon.
 
-##### 29:34
+##### 29,34
 Şi iarăşi a zămislit ea şi a mai născut un fiu şi a zis: «De acum se va lipi de mine bărbatul meu, căci i-am născut trei fii». De aceea i-a pus acestuia numele Levi.
 
-##### 29:35
+##### 29,35
 Şi iarăşi a zămislit şi a mai născut un fiu şi a zis: «Acum voi lăuda pe Domnul!». De aceea i-a pus numele Iuda. Apoi a încetat Lia de a mai naşte.
 
 
 ## Facerea - 30 - *Fiii lui Iacov*
 
-##### 30:1
+##### 30,1
 Iar Rahila, văzând că ea n-a născut lui Iacov niciun fiu, a prins pizmă pe sora sa şi a zis lui Iacov: «Dă-mi copii, iar de nu, voi muri».
 
-##### 30:2
+##### 30,2
 Mâniindu-se însă Iacov pe Rahila, i-a zis: «Au doară eu sunt Dumnezeu, Care a stârpit rodul pântecelui tău?».
 
-##### 30:3
+##### 30,3
 Atunci Rahila a zis către Iacov: «Iată roaba mea Bilha; intră la ea şi ea va naşte pe genunchii mei şi voi avea şi eu copii printr-însa».
 
-##### 30:4
+##### 30,4
 Şi i-a dat pe Bilha, roaba sa, de femeie şi a intrat Iacov la ea;
 
-##### 30:5
+##### 30,5
 Iar Bilha, roaba Rahilei, a zămislit şi a născut lui Iacov un fiu.
 
-##### 30:6
+##### 30,6
 Atunci Rahila a zis: «Dumnezeu mi-a făcut dreptate, a auzit glasul meu şi mi-a dat fiu». De aceea i-a pus numele Dan.
 
-##### 30:7
+##### 30,7
 Şi a zămislit iarăşi Bilha, roaba Rahilei, şi a mai născut un fiu lui Iacov;
 
-##### 30:8
+##### 30,8
 Iar Rahila a zis: «Luptă dumnezeiască m-am luptat cu sora mea, am biruit şi am ajuns deopotrivă cu sora mea!». De aceea i-a pus numele Neftali.
 
-##### 30:9
+##### 30,9
 Lia însă, văzând că a încetat de a mai naşte, a luat pe roaba sa Zilpa şi a dat-o lui Iacov de femeie şi el a intrat la ea;
 
-##### 30:10
+##### 30,10
 Zilpa, roaba Liei, a născut lui Iacov un fiu.
 
-##### 30:11
+##### 30,11
 Atunci a zis Lia: «Noroc!». Şi i-a pus numele Gad.
 
-##### 30:12
+##### 30,12
 Apoi iarăşi a zămislit Zilpa, roaba Liei, şi a născut lui Iacov alt fiu.
 
-##### 30:13
+##### 30,13
 Şi a zis Lia: «Spre fericirea mea s-a născut, că mă vor ferici femeile!». Şi i-a pus numele Aşer.
 
-##### 30:14
+##### 30,14
 Iar pe vremea seceratului grâului s-a dus Ruben şi, găsind în ţarină mandragore, le-a adus la mama sa Lia. Rahila însă a zis către Lia, sora sa: «Dă-mi şi mie din mandragorele fiului tău!».
 
-##### 30:15
+##### 30,15
 Iar Lia a zis: «Nu-ţi ajunge că mi-ai luat bărbatul? Vrei să iei şi mandragorele fiului meu?». Şi Rahila a zis: «Nu aşa, ci pentru mandragorele fiului tău, să se culce Iacov noaptea aceasta cu tine!».
 
-##### 30:16
+##### 30,16
 Venind Iacov seara de la câmp, i-a ieşit Lia înainte şi i-a zis: «Să intri la mine astăzi, că te-am cumpărat cu mandragorele fiului meu!». Şi în noaptea aceea s-a culcat Iacov cu ea.
 
-##### 30:17
+##### 30,17
 Şi a auzit Dumnezeu pe Lia şi ea a zămislit şi a născut lui Iacov al cincilea fiu.
 
-##### 30:18
+##### 30,18
 Atunci a zis Lia: «Mi-a dat răsplată Dumnezeu pentru că am dat bărbatului meu pe roaba mea». Şi a pus copilului numele Isahar, adică răsplată.
 
-##### 30:19
+##### 30,19
 Apoi a mai zămislit Lia încă o dată şi a născut lui Iacov al şaselea fiu.
 
-##### 30:20
+##### 30,20
 Şi a zis Lia: «Dar minunat mi-a dăruit Dumnezeu în timpul de acum! De acum bărbatul meu va şedea la mine, că i-am născut şase feciori». Şi a pus copilului numele Zabulon.
 
-##### 30:21
+##### 30,21
 După aceea Lia a mai născut o fată şi i-a pus numele Dina.
 
-##### 30:22
+##### 30,22
 Dar şi-a adus aminte Dumnezeu şi de Rahila şi a auzit-o Dumnezeu şi i-a deschis pântecele.
 
-##### 30:23
+##### 30,23
 Şi zămislind, ea a născut lui Iacov un fiu; şi a zis Rahila: «Ridicat-a Dumnezeu ocara de la mine!».
 
-##### 30:24
+##### 30,24
 Şi a pus copilului numele Iosif, zicând: «Domnul îmi va mai da şi alt fiu!».
 
-##### 30:25
+##### 30,25
 Iar după ce a născut Rahila pe Iosif, Iacov a zis către Laban: «Lasă-mă să plec, să mă duc la mine, în pământul meu.
 
-##### 30:26
+##### 30,26
 Dă-mi femeile mele şi copiii mei, pentru care ţi-am slujit, ca să mă duc, căci tu ştii ce slujbă ţi-am făcut».
 
-##### 30:27
+##### 30,27
 Laban însă i-a zis: «De am aflat har înaintea ta, mai rămâi la mine! Căci văd bine că Dumnezeu m-a binecuvântat prin venirea ta».
 
-##### 30:28
+##### 30,28
 Apoi a adăugat: «Spune simbria ce voieşti şi-ți voi da-o!».
 
-##### 30:29
+##### 30,29
 Iacov însă i-a răspuns: «Tu ştii cum ţi-am slujit şi cum sunt vitele tale, de când am venit eu la tine;
 
-##### 30:30
+##### 30,30
 Căci erau puţine când am venit eu, iar de atunci s-au înmulţit şi te-a binecuvântat Dumnezeu prin venirea mea. Când însă am să lucrez eu şi pentru casa mea?».
 
-##### 30:31
+##### 30,31
 Răspunsu-i-a Laban: «Ce să-ţi dau?». Şi Iacov a zis: «Să nu-mi dai nimic. Dar de faci ce-ţi voi spune eu, voi mai paşte şi voi mai păzi oile tale.
 
-##### 30:32
+##### 30,32
 Să treacă astăzi toate oile tale pe dinaintea noastră şi să despărţim din ele orice oaie pestriţă sau tărcată sau neagră, iar dintre capre cele pestriţe sau tărcate: aceea să fie simbria mea.
 
-##### 30:33
+##### 30,33
 Credincioşia mea va răspunde pentru mine înaintea ta mâine, când vei veni să-mi statorniceşti simbria: tot ce nu va fi bălţat sau tărcat între caprele mele şi tot ce nu va fi tărcat sau negru între oile mele se va socoti ca furat de mine».
 
-##### 30:34
+##### 30,34
 Zis-a Laban către el: «Bine, să fie cum zici tu!».
 
-##### 30:35
+##### 30,35
 Şi a ales Iacov în ziua aceea ţapii cei vărgaţi sau pestriţi şi toate caprele bălţate sau tărcate, toate câte erau cu cât de puţin alb, şi toate oile tărcate sau negre şi le-a dat în seama fiilor săi.
 
-##### 30:36
+##### 30,36
 Iar Laban a hotărât ca depărtarea între dânsul şi oile lui Iacov să fie cale de trei zile. Şi a rămas Iacov să pască celelalte oi ale lui Laban.
 
-##### 30:37
+##### 30,37
 După aceea şi-a luat Iacov nuiele verzi de plop, de migdal şi de paltin, şi a crestat pe ele dungi albe, luând de pe nuiele fâşii de coajă până la albeaţa nuielelor.
 
-##### 30:38
+##### 30,38
 Apoi punea nuielele crestate în jgheaburile de adăpat, ca, venind să bea, oile să zămislească înaintea nuielelor din adăpători.
 
-##### 30:39
+##### 30,39
 Şi zămisleau oile cum erau nuielele şi fătau oile miei pestriţi, tărcaţi şi negri.
 
-##### 30:40
+##### 30,40
 Iar mieii aceştia îi alegea Iacov şi punea înaintea oilor lui Laban numai tot ce era pestriţ şi tot ce era negru; dar turmele sale le ţinea despărţite şi nu le amesteca cu oile lui Laban.
 
-##### 30:41
+##### 30,41
 Afară de aceasta Iacov, când zămisleau oile cele bune, punea nuiele pestriţe în adăpători înaintea lor, ca să zămislească ele cum erau nuielele;
 
-##### 30:42
+##### 30,42
 Iar când zămisleau cele rele, nu le punea nuielele şi aşa cele ce se cuveneau lui Laban erau slabe, iar cele ce se cuveneau lui Iacov erau voinice.
 
-##### 30:43
+##### 30,43
 De aceea s-a îmbogăţit omul acesta foarte, foarte tare, şi avea mulţime de vite mărunte şi vite mari, roabe şi robi, cămile şi asini.
 
 
 ## Facerea - 31 - *Iacov pleacă în Canaan*
 
-##### 31:1
+##### 31,1
 A auzit însă Iacov vorbele feciorilor lui Laban, care ziceau: «Iacov a luat toate câte avea tatăl nostru şi din ale tatălui nostru şi-a făcut toată bogăţia aceasta».
 
-##### 31:2
+##### 31,2
 Şi căutând Iacov la faţa lui Laban, iată nu mai era faţă de el ca mai înainte.
 
-##### 31:3
+##### 31,3
 Atunci Domnul a zis către Iacov: «Întoarce-te în ţara părinţilor tăi, în patria ta, şi Eu voi fi cu tine!».
 
-##### 31:4
+##### 31,4
 Trimiţând, deci, Iacov a chemat pe Rahila şi pe Lia la câmp, unde erau turmele,
 
-##### 31:5
+##### 31,5
 Şi le-a zis: «Văd eu că faţa tatălui vostru nu mai e faţă de mine, ca mai înainte; dar Dumnezeul tatălui meu este cu mine.
 
-##### 31:6
+##### 31,6
 Voi înşivă ştiţi că am slujit pe tatăl vostru cu toată inima;
 
-##### 31:7
+##### 31,7
 Iar tatăl vostru m-a înşelat şi de zeci de ori mi-a schimbat simbria, Dumnezeu însă nu i-a îngăduit să-mi facă rău.
 
-##### 31:8
+##### 31,8
 Când zicea el: Cele pestriţe să fie simbria ta, toate oile fătau miei pestriţi; iar când zicea el: Cele negre să-ţi fie de simbrie, atunci toate oile fătau miei negri.
 
-##### 31:9
+##### 31,9
 Şi aşa a luat Dumnezeu toate vitele de la tatăl vostru şi mi le-a dat mie.
 
-##### 31:10
+##### 31,10
 Iată o dată, pe vremea când intrau în călduri oile, mi-am ridicat ochii şi am văzut în vis; şi iată că ţapii şi berbecii, care săreau pe capre şi pe oi, erau albi, vărgaţi şi bălţaţi.
 
-##### 31:11
+##### 31,11
 Iar îngerul Domnului mi-a zis în vis: «Iacove!». Şi eu am răspuns: «Ce este?».
 
-##### 31:12
+##### 31,12
 Zis-a el: «Ridică-ţi ochii şi priveşte: toţi ţapii şi berbecii, care sar pe capre şi pe oi, sunt vărgaţi, pestriţi şi bălţaţi, căci am văzut toate câte ţi-a făcut Laban.
 
-##### 31:13
+##### 31,13
 Eu sunt Dumnezeul, Cel ce ţi S-a arătat în Betel, unde Mi-ai turnat untdelemn pe stâlp şi unde Mi-ai făcut făgăduinţă. Scoală deci acum, ieşi din pământul acesta şi mergi în pământul tău de naştere şi Eu voi fi cu tine».
 
-##### 31:14
+##### 31,14
 Atunci Lia şi Rahila i-au răspuns şi au zis: «Mai avem noi oare parte şi moştenire în casa tatălui nostru?
 
-##### 31:15
+##### 31,15
 Oare n-am fost noi socotite de el ca nişte străine, fiindcă el ne-a vândut şi a mâncat banii noştri?
 
-##### 31:16
+##### 31,16
 De aceea, toată averea pe care Dumnezeu a luat-o de la tatăl nostru este a noastră şi a copiilor noştri. Fă dar acum toate câte ţi-a zis Domnul!».
 
-##### 31:17
+##### 31,17
 Atunci s-a sculat Iacov şi a urcat copiii şi femeile sale pe cămile,
 
-##### 31:18
+##### 31,18
 A strâns toate turmele sale şi toată bogăţia sa, pe care o agonisise în Mesopotamia, şi toate ale sale, ca să meargă la Isaac, tatăl său, în ţara Canaanului.
 
-##### 31:19
+##### 31,19
 Iar Laban, ducându-se să-şi tundă oile, Rahila a furat idolii tatălui său.
 
-##### 31:20
+##### 31,20
 Deci Iacov a înşelat pe Laban Arameul, căci nu l-a vestit că pleacă,
 
-##### 31:21
+##### 31,21
 Ci a fugit cu toate câte avea şi, trecând Eufratul, s-a îndreptat spre Muntele Galaadului.
 
-##### 31:22
+##### 31,22
 Iar a treia zi i s-a dat de ştire lui Laban Arameul, că Iacov a fugit.
 
-##### 31:23
+##### 31,23
 Atunci, luând Laban cu sine pe feciorii şi pe rudele sale, a alergat după el cale de şapte zile şi l-a ajuns la Muntele Galaadului.
 
-##### 31:24
+##### 31,24
 Dar Dumnezeu a venit la Laban Arameul noaptea în vis şi i-a zis: «Fereşte-te, nu cumva să vorbeşti lui Iacov nici de bine, nici de rău».
 
-##### 31:25
+##### 31,25
 Şi a ajuns Laban pe Iacov. Iacov însă îşi aşezase cortul său pe munte; şi tot pe Muntele Galaad şi l-a aşezat şi Laban cu rudele sale.
 
-##### 31:26
+##### 31,26
 Atunci a zis Laban către Iacov: «Ce ai făcut? Pentru ce mi-ai furat inima şi mi-ai luat fetele, ca şi cum le-ai fi robit cu sabia?
 
-##### 31:27
+##### 31,27
 Pentru ce ai fugit pe ascuns şi m-ai înşelat, în loc să mă înştiinţezi pe mine, care ţi-aş fi dat drumul cu veselie şi cu cântări din timpane şi din harfă?
 
-##### 31:28
+##### 31,28
 Ba nu mi-ai îngăduit nici măcar să-mi sărut nepoţii şi fetele mele. Te-ai purtat, aşadar, ca un om fără de minte.
 
-##### 31:29
+##### 31,29
 Şi acum mâna mea cea puternică ar putea să-ţi facă rău. Dar Dumnezeul tatălui tău mi-a vorbit ieri şi mi-a zis: «Fereşte-te, nu cumva să vorbeşti lui Iacov nici de bine, nici de rău!».
 
-##### 31:30
+##### 31,30
 Să zicem că ai plecat, pentru că cu mare aprindere doreai casa tatălui tău. Dar atunci de ce mi-ai furat dumnezeii mei?».
 
-##### 31:31
+##### 31,31
 Atunci răspunzând Iacov, a zis către Laban: «M-am temut, căci ziceam: Nu cumva să-ţi iei fetele de la mine şi toate ale mele.
 
-##### 31:32
+##### 31,32
 Dar la cine vei găsi idolii tăi, acela nu va mai trăi. Caută de faţă cu rudele noastre şi ia tot ce vei găsi al tău la mine!». Iacov însă nu ştia că Rahila, femeia sa, îi furase.
 
-##### 31:33
+##### 31,33
 A intrat atunci Laban în cortul lui Iacov, şi în cortul Liei, şi în cortul celor două roabe, şi a căutat şi n-a găsit nimic; apoi, ieşind din cortul Liei, a intrat şi în cortul Rahilei.
 
-##### 31:34
+##### 31,34
 Rahila însă luase idolii şi-i pusese sub samarul cămilei şi şedea deasupra lor; şi a scotocit Laban prin tot cortul Rahilei şi n-a găsit nimic.
 
-##### 31:35
+##### 31,35
 Iar ea a zis către tatăl său: «Să nu se mânie domnul meu că nu mă pot scula înaintea ta, pentru că tocmai acum am necazul obişnuit al femeilor». Şi mai scotocind Laban prin tot cortul, n-a găsit idolii.
 
-##### 31:36
+##### 31,36
 Atunci s-a mâniat Iacov şi s-a plâns împotriva lui Laban. Şi începând a grăi, Iacov a zis lui Laban: «Care-i vina mea şi care-i păcatul meu, de te înverşunezi împotriva mea?
 
-##### 31:37
+##### 31,37
 Dacă ai răscolit toate lucrurile din casa mea, găsit-ai, oare, ceva din ale casei tale? Arată aici înaintea rudeniilor tale şi înaintea rudeniilor mele, ca să ne judece ele pe amândoi!
 
-##### 31:38
+##### 31,38
 Iată, douăzeci de ani am stat la tine: oile tale şi caprele tale n-au lepădat; berbecii oilor tale nu ţi i-am mâncat,
 
-##### 31:39
+##### 31,39
 Vite sfâşiate de fiare nu ţi-am adus: acestea au fost paguba mea. Din mâna mea ai cerut ceea ce se furase în timpul zilei şi în vremea nopţii.
 
-##### 31:40
+##### 31,40
 Ziua eram mistuit de căldură, iar noaptea de frig şi somnul nu se lipea de ochii mei.
 
-##### 31:41
+##### 31,41
 Aşa mi-au fost cei douăzeci de ani în casa ta. Ți-am slujit paisprezece ani pentru cele două fete ale tale şi şase ani pentru vitele tale, iar tu de zeci de ori mi-ai schimbat simbria.
 
-##### 31:42
+##### 31,42
 De n-ar fi fost cu mine Dumnezeul tatălui meu, Dumnezeul lui Avraam şi frica de Isaac, tu acum m-ai fi alungat cu nimic. Necazul meu şi munca mâinilor mele le-a văzut Dumnezeu şi de aceea a mijlocit ieri pentru mine».
 
-##### 31:43
+##### 31,43
 Răspuns-a Laban şi a zis către Iacov: «Aceste fete sunt fetele mele, aceşti copii sunt copiii mei, aceste vite sunt vitele mele, şi toate câte le vezi sunt ale mele şi ale fetelor mele. Cum dar aş fi putut eu să fac astăzi ceva împotriva lor, sau împotriva copiilor, pe care i-au născut ele?
 
-##### 31:44
+##### 31,44
 Haidem dar acum să facem amândoi, eu şi tu, legământ, care să fie mărturie între mine şi tine!». Iar Iacov i-a zis: «Iată, nu e nimeni cu noi; dar să ştii că Dumnezeu este martor între mine şi tine».
 
-##### 31:45
+##### 31,45
 Şi a luat Iacov o piatră şi a pus-o stâlp.
 
-##### 31:46
+##### 31,46
 Apoi a zis Iacov către fraţii săi: «Adunaţi pietre!». Şi au adunat pietre şi au făcut o movilă; şi au mâncat şi au băut acolo pe movilă. Apoi a zis Laban către dânsul: «Movila aceasta este astăzi mărturie între mine şi între tine».
 
-##### 31:47
+##### 31,47
 Şi Laban a numit-o în limba sa: Iegar-Sahaduta, adică movila mărturiei, iar Iacov i-a dat acelaşi nume, însă pe limba sa şi i-a zis: Galaad.
 
-##### 31:48
+##### 31,48
 Apoi Laban a zis iarăşi către Iacov: «Iată, movila aceasta şi semnul ce am pus astăzi sunt mărturia legământului dintre mine şi tine». De aceea i s-a pus şi numele Galaad, adică movila mărturiei.
 
-##### 31:49
+##### 31,49
 Ba s-a mai numit ea şi Miţpa, adică veghere, pentru că Laban a zis: «Să vegheze Domnul asupra mea şi asupra ta, după ce ne vom despărţi unul de altul.
 
-##### 31:50
+##### 31,50
 De te vei purta rău cu fetele mele, sau de-ţi vei mai lua şi alte femei, afară de fetele mele, nu mai e vorba de un om, care să vadă, ci ia aminte că între mine şi între tine e martor Dumnezeu!».
 
-##### 31:51
+##### 31,51
 Şi iarăşi a zis Laban către Iacov: «Iată movila aceasta şi stâlpul, pe care l-am pus între amândoi, este mărturie între mine şi tine.
 
-##### 31:52
+##### 31,52
 Că nici eu nu voi trece spre tine şi nici tu nu vei trece spre mine, de la această movilă, cu gând rău.
 
-##### 31:53
+##### 31,53
 Dumnezeul lui Avraam şi Dumnezeul lui Nahor, Dumnezeul părinţilor lor să fie judecător între noi!». Iar Iacov a jurat pe Acela, de Care se temea Isaac, tatăl său.
 
-##### 31:54
+##### 31,54
 Apoi a junghiat Iacov ardere de tot pe munte şi a chemat pe rudele sale să mănânce pâine. Şi au mâncat pâine şi s-au veselit în munte.
 
-##### 31:55
+##### 31,55
 Iar a doua zi s-a sculat Laban dis-de-dimineaţă şi a sărutat pe nepoţii săi şi pe fetele sale şi i-a binecuvântat. Apoi Laban a pornit să se întoarcă la locul său.
 
 
 ## Facerea - 32 - *Rugăciunea lui Iacov*
 
-##### 32:1
+##### 32,1
 După aceea Iacov s-a dus în calea sa. Şi căutând, el a văzut oştirea lui Dumnezeu tăbărâtă, căci l-au întâmpinat îngerii lui Dumnezeu.
 
-##### 32:2
+##### 32,2
 Iacov însă, când i-a văzut, a zis: «Aceasta este tabăra lui Dumnezeu!». Şi a pus locului aceluia numele Mahanaim, adică două tabere.
 
-##### 32:3
+##### 32,3
 Apoi a trimis Iacov soli înaintea sa, la fratele său Isav, în ţinutul Seir din ţara Edomului,
 
-##### 32:4
+##### 32,4
 Şi le-a poruncit, zicând: «Aşa să ziceţi către domnul meu Isav: Aşa grăieşte robul tău Iacov: Am stat la Laban şi am trăit la el până acum.
 
-##### 32:5
+##### 32,5
 Am boi şi asini, oi, slugi şi slujnice, şi am trimis să vestească pe domnul meu Isav, ca să afle robul tău bunăvoinţă înaintea ta».
 
-##### 32:6
+##### 32,6
 Şi întorcându-se la Iacov, i-au spus solii: «Am fost la fratele tău Isav şi iată el vine în întâmpinarea ta cu patru sute de oameni».
 
-##### 32:7
+##### 32,7
 Iacov însă s-a spăimântat foarte şi nu ştia ce să facă. Şi a împărţit oamenii, care erau cu el, boii, oile şi cămilele în două tabere.
 
-##### 32:8
+##### 32,8
 Şi a zis Iacov: «De va năvăli Isav asupra unei tabere şi o va bate, va scăpa cealaltă tabără».
 
-##### 32:9
+##### 32,9
 Apoi Iacov a zis: «Dumnezeul tatălui meu Avraam şi Dumnezeul tatălui meu Isaac, Doamne, Tu, Cel ce mi-ai zis: Întoarce-te în ţara ta de naştere, şi Eu îţi voi face bine,
 
-##### 32:10
+##### 32,10
 Nu sunt vrednic de toate îndurările Tale şi de toate binefacerile ce mi-ai arătat mie, robului Tău, că numai cu toiagul am trecut deunăzi Iordanul acesta, iar acum am două tabere;
 
-##### 32:11
+##### 32,11
 Izbăveşte-mă dar din mâna fratelui meu, din mâna lui Isav, căci mă tem de el, ca nu cumva să vină şi să mă omoare pe mine şi pe aceste mame cu copii.
 
-##### 32:12
+##### 32,12
 Căci Tu ai zis: îţi voi face bine şi voi înmulţi neamul tău ca nisipul mării, cât nu se va putea număra din pricina mulţimii».
 
-##### 32:13
+##### 32,13
 Şi a rămas acolo în noaptea aceea. Apoi a luat din cele ce avea şi a trimis dar fratelui său Isav:
 
-##### 32:14
+##### 32,14
 Două sute de capre şi douăzeci de ţapi, două sute de oi şi douăzeci de berbeci,
 
-##### 32:15
+##### 32,15
 Treizeci de cămile mulgătoare cu mânjii lor, patruzeci de vaci şi zece tauri, douăzeci de asine şi zece asini.
 
-##### 32:16
+##### 32,16
 Şi a dat fiecare din aceste turme deosebi în seama slugilor sale şi a zis slugilor sale: «Treceţi înaintea mea şi să fie depărtate turmele una de alta».
 
-##### 32:17
+##### 32,17
 Celui dintâi i-a poruncit, zicând: «Când te va întâlni fratele meu Isav şi te va întreba: Al cui eşti tu şi unde te duci, şi ale cui sunt acestea, ce merg înaintea ta,
 
-##### 32:18
+##### 32,18
 Să zici: Ale robului tău Iacov; e dar trimis lui Isav, stăpânul meu. Iată vine şi el după noi!»
 
-##### 32:19
+##### 32,19
 Aşa a poruncit Iacov şi slugii celei de a doua şi celei de a treia şi tuturor celor ce mergeau cu turmele, zicând: «Aşa să spuneţi lui Isav, când îl veţi întâlni.
 
-##### 32:20
+##### 32,20
 Şi să-i mai spuneţi: Iată şi el, robul tău Iacov, vine după noi». Căci îşi zicea: Voi îmblânzi faţa lui cu darurile ce-mi merg înainte şi numai după aceea voi vedea faţa lui, şi aşa poate mă va primi.
 
-##### 32:21
+##### 32,21
 Şi au pornit darurile înaintea lui, iar el a rămas noaptea aceea în tabără.
 
-##### 32:22
+##### 32,22
 Dar s-a sculat noaptea şi luând pe cele două femei ale sale şi pe cele două roabe şi pe cei unsprezece copii ai săi, a trecut Iabocul prin vad.
 
-##### 32:23
+##### 32,23
 Iar după ce i-a luat şi i-a trecut râul, a trecut şi toate ale sale.
 
-##### 32:24
+##### 32,24
 Rămânând Iacov singur, s-a luptat Cineva cu dânsul până la revărsatul zorilor.
 
-##### 32:25
+##### 32,25
 Văzând însă că nu-l poate răpune Acela, S-a atins de încheietura coapsei lui şi i-a vătămat lui Iacov încheietura coapsei, pe când se lupta cu el.
 
-##### 32:26
+##### 32,26
 Şi i-a zis: «Lasă-Mă să plec, că s-au ivit zorile!». Iacov I-a răspuns: «Nu Te las până nu mă vei binecuvânta».
 
-##### 32:27
+##### 32,27
 Şi l-a întrebat Acela: «Care îţi este numele?». Şi el a zis: «Iacov!».
 
-##### 32:28
+##### 32,28
 Zisu-i-a Acela: «De acum nu-ţi va mai fi numele Iacov, ci Israel te vei numi, că te-ai luptat cu Dumnezeu şi cu oamenii şi ai ieşit biruitor!».
 
-##### 32:29
+##### 32,29
 Şi a întrebat şi Iacov, zicând: «Spune-mi şi Tu numele Tău!». Iar Acela a zis: «Pentru ce întrebi de numele Meu? El e minunat!». Şi l-a binecuvântat acolo.
 
-##### 32:30
+##### 32,30
 Şi a pus Iacov locului aceluia numele Peniel, adică faţa lui Dumnezeu, căci şi-a zis: «Am văzut pe Dumnezeu în faţă şi mântuit a fost sufletul meu!».
 
-##### 32:31
+##### 32,31
 Iar când răsărea soarele, trecuse de Peniel, dar el şchiopăta din pricina şoldului.
 
-##### 32:32
+##### 32,32
 De aceea fiii lui Israel până astăzi nu mănâncă muşchiul de pe şold, pentru că Cel ce S-a luptat a atins încheietura şoldului lui Iacov, în dreptul acestui muşchi.
 
 
 ## Facerea - 33 - *Împăcarea lui Iacov cu Isav*
 
-##### 33:1
+##### 33,1
 Atunci, ridicându-şi ochii, Iacov a văzut pe Isav, fratele său, venind cu cei patru sute de oameni. Şi a împărţit Iacov copiii Liei şi ai Rahilei şi ai celor două roabe.
 
-##### 33:2
+##### 33,2
 Şi a pus pe cele două roabe cu copiii lor înainte; apoi după ei a pus pe Lia cu copiii ei şi la urmă a pus pe Rahila şi pe Iosif;
 
-##### 33:3
+##### 33,3
 Iar el mergea în fruntea lor şi, apropiindu-se de fratele său, i s-a închinat de şapte ori până la pământ.
 
-##### 33:4
+##### 33,4
 Isav însă a alergat în întâmpinarea lui şi l-a îmbrăţişat şi, cuprinzându-i grumazul, l-a sărutat şi au plâns amândoi.
 
-##### 33:5
+##### 33,5
 Apoi, ridicându-şi ochii şi văzând femeile şi copiii, Isav a zis: «Cine sunt aceştia?». Zis-a Iacov: «Copiii cu care a miluit Dumnezeu pe robul tău!».
 
-##### 33:6
+##### 33,6
 Deci, s-au apropiat întâi roabele cu copiii lor şi s-au închinat.
 
-##### 33:7
+##### 33,7
 Apoi a venit Lia cu copiii ei şi s-au închinat, iar la urmă au venit şi s-au închinat şi Rahila cu Iosif.
 
-##### 33:8
+##### 33,8
 Zis-a Isav: «Ce sunt acele turme, pe care le-am întâlnit?». Iar Iacov a răspuns: «Ca să afle robul tău bunăvoinţă înaintea domnului meu».
 
-##### 33:9
+##### 33,9
 Atunci Isav a zis: «Am şi eu multe, frate; ţine-ţi ale tale pentru tine!».
 
-##### 33:10
+##### 33,10
 Iacov însă a zis: «De am aflat bunăvoinţă înaintea ta, primeşte darurile din mâinile mele, căci, când am văzut faţa ta, parcă aş fi văzut faţa lui Dumnezeu, aşa de binevoitor mi-ai fost.
 
-##### 33:11
+##### 33,11
 Primeşte de la mine binecuvântările mele, pe care ţi le aduc, că m-a miluit Dumnezeu şi am de toate». Şi a stăruit şi le-a luat.
 
-##### 33:12
+##### 33,12
 Apoi a zis Isav: «Să ne sculăm şi să mergem împreună; eu însă îmi voi potrivi pasul cu tine».
 
-##### 33:13
+##### 33,13
 Iacov însă a răspuns: «Domnul meu ştie că îmi sunt gingaşi copiii şi că am oi şi vite de curând fătate; de le vom mâna tare numai o zi, ar pieri toată turma.
 
-##### 33:14
+##### 33,14
 Să se ducă dar domnul meu, înaintea robului său, iar eu voi urma încet, în pas cu vitele cele dinaintea mea şi în pas cu copiii, până voi ajunge la domnul meu în Seir».
 
-##### 33:15
+##### 33,15
 Atunci Isav a zis: «Să-ţi las măcar o parte din oamenii cei ce sunt cu mine». Iar Iacov i-a răspuns: «La ce aceasta? Mi-ajunge mie bunăvoinţa ce-am aflat înaintea domnului meu».
 
-##### 33:16
+##### 33,16
 Şi s-a întors Isav în aceeaşi zi pe calea sa la Seir.
 
-##### 33:17
+##### 33,17
 Iar Iacov s-a îndreptat spre Sucot şi şi-a făcut acolo locuinţă pentru sine, iar pentru vitele sale a făcut şuri; de aceea a pus el numele locului aceluia Sucot.
 
-##### 33:18
+##### 33,18
 Întorcându-se Iacov din Mesopotamia şi ajungând cu bine la Salem, o cetate în ţinutul Sichem, din pământul Canaan, s-a aşezat în faţa cetăţii.
 
-##### 33:19
+##### 33,19
 Apoi şi-a cumpărat partea de câmp, pe care era cortul său, cu o sută de kesite, de la fiii lui Hemor, tatăl lui Sichem.
 
-##### 33:20
+##### 33,20
 A înălţat acolo un jertfelnic şi i-a pus numele El-Elohe-Israel.
 
 
 ## Facerea - 34 - *Dina și Sichem*
 
-##### 34:1
+##### 34,1
 Într-o zi, Dina, fata Liei, pe care aceasta o născuse lui Iacov, a ieşit să vadă fetele ţării aceleia.
 
-##### 34:2
+##### 34,2
 Şi văzând-o Sichem, feciorul lui Hemor Heveul, stăpânitorul pământului aceluia, a luat-o şi, culcându-se cu ea, a necinstit-o.
 
-##### 34:3
+##### 34,3
 Apoi s-a lipit sufletul lui de Dina, fata lui Iacov, şi i-a căzut dragă fata şi a vorbit pe placul fetei.
 
-##### 34:4
+##### 34,4
 Şi a zis Sichem către tatăl său Hemor: «Ia-mi pe fata aceasta de femeie!».
 
-##### 34:5
+##### 34,5
 Deşi Iacov a auzit că fiul lui Hemor a necinstit pe Dina, fata sa, dar, fiindcă feciorii lui erau cu vitele la câmp, a tăcut până s-au întors ei.
 
-##### 34:6
+##### 34,6
 Iar Hemor, tatăl lui Sichem, a ieşit la Iacov, ca să vorbească cu el.
 
-##### 34:7
+##### 34,7
 Feciorii lui Iacov însă, venind de la câmp şi aflând despre aceasta, se amărâră şi se mâniară foarte tare, pentru că Sichem săvârşise o faptă de ocară în Israel, culcându-se cu fata lui Iacov, ceea ce nu trebuia să se întâmple.
 
-##### 34:8
+##### 34,8
 Şi grăind cu ei, Hemor a zis: «Sichem, feciorul mea, s-a lipit cu sufletul de fata voastră; daţi-o dar lui de femeie şi vă încuscriţi cu noi:
 
-##### 34:9
+##### 34,9
 Măritaţi-vă fetele voastre cu noi şi fetele noastre luaţi-le pentru feciorii voştri;
 
-##### 34:10
+##### 34,10
 Şedeţi la un loc cu noi: acest pământ larg vă e la îndemână, ca să vă aşezaţi într-însul, să faceţi negoţ şi să vă agonisiţi din el moşie».
 
-##### 34:11
+##### 34,11
 Iar Sichem a zis către tatăl fetei şi către fraţii ei: «Orice veţi zice, voi da, numai să aflu bunăvoinţă la voi.
 
-##### 34:12
+##### 34,12
 Cereţi de la mine un mare preţ de cumpărare şi darurile cele mai mari şi vă voi da cât veţi zice, numai daţi-mi fata mie de femeie!».
 
-##### 34:13
+##### 34,13
 Feciorii lui Iacov însă au răspuns cu vicleşug lui Sichem şi lui Hemor, tatăl lui; şi le-au răspuns aşa, pentru că acela necinstise pe Dina, sora lor.
 
-##### 34:14
+##### 34,14
 Şi au zis către dânşii Simeon şi Levi, fraţii Dinei şi feciorii Liei: «Nu putem să facem aceasta: să dăm pe sora noastră după un om netăiat împrejur, că aceasta ar fi o ruşine pentru noi.
 
-##### 34:15
+##### 34,15
 Numai aşa ne învoim cu voi şi ne aşezăm la voi, dacă veţi face şi voi ca noi, tăindu-vă împrejur toţi cei de parte bărbătească.
 
-##### 34:16
+##### 34,16
 Atunci vom da după voi fetele noastre, iar noi vom lua fetele voastre şi vom locui la un loc cu voi şi vom alcătui un popor.
 
-##### 34:17
+##### 34,17
 Iar de nu vreţi să ne ascultaţi, ca să vă tăiaţi împrejur, noi vom lua înapoi fata şi ne vom duce».
 
-##### 34:18
+##### 34,18
 Vorbele acestea au plăcut lui Hemor şi lui Sichem, feciorul lui Hemor.
 
-##### 34:19
+##### 34,19
 De aceea, n-a zăbovit tânărul să facă aceasta, căci era îndrăgostit de fata lui Iacov şi era şi cel mai cu trecere în casa tatălui său.
 
-##### 34:20
+##### 34,20
 Şi au venit Hemor şi Sichem, feciorul lui, la poarta cetăţii lor, şi au început a grăi locuitorilor cetăţii, zicând:
 
-##### 34:21
+##### 34,21
 «Oamenii aceştia sunt paşnici; să se aşeze dar în ţara noastră şi să facă negoţ în ea. Iată că loc este din destul şi într-o parte şi într-alta; fetele lor să ni le luăm de femei şi fetele noastre să le dăm după ei.
 
-##### 34:22
+##### 34,22
 Dar oamenii aceştia numai aşa se învoiesc să trăiască cu noi şi să fie un popor cu noi, dacă şi la noi se vor tăia împrejur toţi cei de parte bărbătească, cum sunt ei tăiaţi împrejur.
 
-##### 34:23
+##### 34,23
 Turmele lor, vitele lor şi toate averile lor nu sunt, oare, ale noastre? Să le plinim voia lor, iar ei să se aşeze printre noi!».
 
-##### 34:24
+##### 34,24
 Şi au ascultat pe Hemor şi pe Sichem, feciorul lui, toţi cei ce ieşeau pe poarta cetăţii lor şi au fost tăiaţi împrejur toţi cei de parte bărbătească, câţi ieşeau pe poarta cetăţii lor.
 
-##### 34:25
+##### 34,25
 Iar a treia zi, când erau ei încă în dureri, cei doi fiii ai lui Iacov, Simeon şi Levi, fraţii Dinei, şi-au luat fiecare sabia şi au intrat fără teamă în cetate şi au ucis pe toţi cei de parte bărbătească.
 
-##### 34:26
+##### 34,26
 Au trecut prin ascuţişul sabiei şi pe Hemor şi pe fiul său Sichem şi au luat pe Dina din casa lui Sichem şi au plecat.
 
-##### 34:27
+##### 34,27
 Apoi fiii lui Iacov se năpustiră asupra celor morţi şi jefuiră cetatea în care fusese necinstită Dina, sora lor.
 
-##### 34:28
+##### 34,28
 Au luat toate oile lor, toţi boii lor, toţi asinii lor, tot ce era în cetate şi tot ce era pe câmp;
 
-##### 34:29
+##### 34,29
 Toate bogăţiile lor, toţi copiii şi femeile le-au dus în robie; şi au jefuit tot ce era în cetate şi tot ce era prin case.
 
-##### 34:30
+##### 34,30
 Atunci Iacov a zis către Simeon şi către Levi: «Mare tulburare mi-aţi adus, făcându-mă urât înaintea tuturor locuitorilor ţării acesteia, înaintea Canaaneilor şi a Ferezeilor. Eu am oameni puţini la număr; se vor ridica asupra mea şi mă vor ucide şi voi pieri şi eu şi casa mea».
 
-##### 34:31
+##### 34,31
 Iar ei au zis: «Dar se putea, oare, ca ei să se poarte cu sora noastră ca şi cu o femeie pierdută?».
 
 
 ## Facerea - 35 - *Iacov la Betel. Moartea Rahilei*
 
-##### 35:1
+##### 35,1
 Atunci a zis Dumnezeu lui Iacov: «Scoală şi du-te la Betel şi locuieşte acolo; fă acolo jertfelnic Dumnezeului Celui ce ţi S-a arătat, când fugeai tu de la faţa lui Isav, fratele tău!».
 
-##### 35:2
+##### 35,2
 Iar Iacov a zis casei sale şi tuturor celor ce erau cu dânsul: «Lepădaţi dumnezeii cei străini, care se află la voi, curăţiţi-vă şi vă primeniţi hainele voastre.
 
-##### 35:3
+##### 35,3
 Să ne sculăm şi să mergem la Betel, că acolo am să fac jertfelnic lui Dumnezeu, Celui ce m-a auzit în ziua necazului meu şi Care a fost cu mine şi m-a păzit în călătoria în care am umblat!».
 
-##### 35:4
+##### 35,4
 Iar ei au dat lui Iacov toţi dumnezeii cei străini, care erau în mâinile lor, şi cerceii ce-i aveau în urechile lor; şi Iacov i-a îngropat sub stejarul de lângă Sichem şi i-a lăsat necunoscuţi până în ziua de astăzi.
 
-##### 35:5
+##### 35,5
 Astfel au plecat ei de la Sichem; şi frica lui Dumnezeu era peste oraşele dimprejur şi n-au urmărit pe fiii lui Iacov.
 
-##### 35:6
+##### 35,6
 Sosind Iacov cu toţi oamenii cei ce erau cu el la Luz, adică la Betel, în ţara Canaanului,
 
-##### 35:7
+##### 35,7
 A zidit acolo un jertfelnic şi a numit locul acela El-Bet-El, pentru că acolo i Se arătase Dumnezeu, când fugea el de Isav, fratele său.
 
-##### 35:8
+##### 35,8
 Atunci a murit Debora, doica Rebecăi, şi a fost îngropată mai jos de Betel, sub un stejar, pe care Iacov l-a numit «Stejarul Plângerii».
 
-##### 35:9
+##### 35,9
 Aici, în Luz, Se mai arătă Dumnezeu lui Iacov, după întoarcerea lui din Mesopotamia, şi îl binecuvântă Dumnezeu,
 
-##### 35:10
+##### 35,10
 Şi-i zise: «De acum nu te vei mai chema Iacov, ci Israel va fi numele tău». Şi-i puse numele Israel.
 
-##### 35:11
+##### 35,11
 Apoi Dumnezeu îi mai zise: «Eu sunt Dumnezeul cel Atotputernic! Sporeşte şi te înmulţeşte! Popoare şi mulţime de neamuri se vor naşte din tine şi regi vor răsări din coapsele tale.
 
-##### 35:12
+##### 35,12
 Ţara, pe care am dat-o lui Avraam şi lui Isaac, o voi da ţie; iar după tine, voi da pământul acesta urmaşilor tăi».
 
-##### 35:13
+##### 35,13
 Apoi S-a înălţat Dumnezeu de la el, din locul în care îi grăise.
 
-##### 35:14
+##### 35,14
 Şi a aşezat Iacov un stâlp pe locul unde-i grăise Dumnezeu, un stâlp de piatră, şi a săvârşit turnare peste el şi a turnat peste el untdelemn.
 
-##### 35:15
+##### 35,15
 Şi a pus Iacov locului unde-i grăise Dumnezeu, numele Betel.
 
-##### 35:16
+##### 35,16
 După aceea au plecat din Betel. Şi şi-a întins cortul său dincolo de turnul Gader. Dar când se apropiase de Havrata, înainte de a intra în Efrata, Rahila a născut şi naşterea aceasta a fost iar tare grea.
 
-##### 35:17
+##### 35,17
 Şi pe când se chinuia Rahila în durerile naşterii, moaşa i-a zis: «Nu te teme, că şi acesta va fi băiat!».
 
-##### 35:18
+##### 35,18
 Iar când Rahila îşi dădea sufletul, căci a murit, a pus copilului numele Ben-Oni, adică fiul durerii mele, iar tatăl lui l-a numit Veniamin.
 
-##### 35:19
+##### 35,19
 Iar dacă a murit, Rahila a fost îngropată lângă calea ce duce la Efrata, adică la Betleem;
 
-##### 35:20
+##### 35,20
 Iacov a ridicat un stâlp de piatră pe mormântul ei şi acest stâlp, de pe mormântul Rahilei, este până în ziua de astăzi.
 
-##### 35:21
+##### 35,21
 Apoi plecând Iacov de aici şi-a întins cortul dincolo de turnul Migdal-Eder. Iar pe vremea când locuia Israel în ţara aceasta, a intrat Ruben şi a dormit cu Bilha, ţiitoarea tatălui său Iacov, şi a auzit Israel şi i s-a părut aceasta un rău.
 
-##### 35:22
+##### 35,22
 Fiii lui Iacov au fost doisprezece şi anume:
 
-##### 35:23
+##### 35,23
 Fiii Liei: Ruben, întâi-născutul lui Iacov; după el veneau: Simeon, Levi, Iuda, Isahar şi Zabulon.
 
-##### 35:24
+##### 35,24
 Fiii Rahilei: Iosif şi Veniamin.
 
-##### 35:25
+##### 35,25
 Fiii slujnicei Rahilei, Bilha: Dan şi Neftali.
 
-##### 35:26
+##### 35,26
 Şi fiii Zilpei, roaba Liei: Gad şi Aşer. Aceştia sunt fiii lui Iacov, care i s-au născut în Mesopotamia.
 
-##### 35:27
+##### 35,27
 Apoi a sosit Iacov la Isaac, tatăl său, căci acesta trăia încă la Mamvri, în Chiriat-Arba, adică la Hebron în pământul Canaanului, unde locuiseră vremelnic Avraam şi Isaac.
 
-##### 35:28
+##### 35,28
 Iar zilele, pe care le-a trăit Isaac, au fost o sută optzeci de ani.
 
-##### 35:29
+##### 35,29
 Slăbind apoi, Isaac a murit şi a trecut la părinţii săi, fiind bătrân şi încărcat de zile, şi l-au îngropat feciorii lui, Isav şi Iacov.
 
 
 ## Facerea - 36 - *Neamul lui Isav*
 
-##### 36:1
+##### 36,1
 Iar spiţa neamului lui Isav, care se mai numeşte şi Edom, este aceasta:
 
-##### 36:2
+##### 36,2
 Isav şi-a luat femei din fetele Canaaneilor: pe Ada, fata lui Elon Heteul, şi pe Olibama, fata lui Ana, fiul lui Ţibon Heveul,
 
-##### 36:3
+##### 36,3
 Şi pe Basemata, fata lui Ismael şi sora lui Nebaiot.
 
-##### 36:4
+##### 36,4
 Ada a născut lui Isav pe Elifaz; Basemata i-a născut pe Raguel;
 
-##### 36:5
+##### 36,5
 Iar Olibama i-a născut pe Ieuş, pe Ialam şi pe Core. Aceştia sunt fiii lui Isav, care i s-au născut în ţara Canaanului.
 
-##### 36:6
+##### 36,6
 După aceea şi-a luat Isav femeile sale, fiii săi, fetele sale, toţi oamenii casei sale, toate averile sale, toate vitele sale şi toate câte avea şi toate câte agonisise în ţara Canaanului, şi a plecat Isav din Canaan din pricina lui Iacov, fratele său,
 
-##### 36:7
+##### 36,7
 Pentru că averile lor erau multe şi nu mai puteau să locuiască la un loc, şi pământul unde erau nu-i mai putea încăpea din pricina mulţimii turmelor lor.
 
-##### 36:8
+##### 36,8
 Astfel Isav, care se mai numeşte şi Edom, s-a mutat în muntele Seir.
 
-##### 36:9
+##### 36,9
 Iată acum şi urmaşii ce i s-au născut lui Isav, părintele Edomiţilor, după mutarea sa în muntele Seir.
 
-##### 36:10
+##### 36,10
 Numele fiilor lui Isav sunt acestea: Elifaz, fiul Adei, solia lui Isav şi Raguel, fiul Basematei, soţia lui Isav.
 
-##### 36:11
+##### 36,11
 Elifaz, a avut cinci feciori: Teman, Omar, Ţefo, Gatam şi Chenaz;
 
-##### 36:12
+##### 36,12
 Iar Timna, o ţiitoare a lui Elifaz, fiul lui Isav, i-a născut lui Elifaz pe Amalec. Aceştia sunt urmaşii din Ada, femeia lui Isav.
 
-##### 36:13
+##### 36,13
 Iar feciorii lui Raguel sunt aceştia: Nahat şi Zerah, Şama şi Miza. Aceştia sunt urmaşii din Basemata, femeia lui Isav.
 
-##### 36:14
+##### 36,14
 Iar feciorii Olibamei, femeia lui Isav şi fiica lui Ana a lui Ţibon, sunt aceştia: ea a născut lui Isav pe Ieuş, pe Ialam şi pe Core.
 
-##### 36:15
+##### 36,15
 Iată şi căpeteniile fiilor lui Isav: feciorii lui Elifaz, întâi-născutul lui Isav, sunt: căpetenia Teman, căpetenia Omar, căpetenia Ţefo, căpetenia Chenaz,
 
-##### 36:16
+##### 36,16
 Căpetenia Core, căpetenia Gatam şi căpetenia Amalec. Acestea sunt căpeteniile din Elifaz în ţara Edomului; aceştia sunt urmaşii din Ada.
 
-##### 36:17
+##### 36,17
 Iar fiii lui Raguel, fiul lui Isav, sunt: căpetenia Nahat, căpetenia Zerah, căpetenia Şama şi căpetenia Miza. Acestea sunt căpeteniile din Raguel în ţara Edomului; aceştia sunt urmaşii din Basemata, femeia lui Isav.
 
-##### 36:18
+##### 36,18
 Iată şi fiii Olibamei, femeia lui Isav: căpetenia Ieuş, căpetenia Ialam şi căpetenia Core. Acestea sunt căpeteniile din Olibama, fata lui Ana şi femeia lui Isav.
 
-##### 36:19
+##### 36,19
 Aceştia sunt fiii lui Isav şi acestea sunt căpeteniile lor. Acesta este Edom.
 
-##### 36:20
+##### 36,20
 Iar feciorii lui Seir Horeeanul, care locuiau înainte pământul acela, sunt: Lotan, Şobal, Ţibon şi Ana;
 
-##### 36:21
+##### 36,21
 Dişon, Eţer şi Dişan. Acestea sunt căpeteniile Horeilor, feciorii lui Seir, în pământul Edomului.
 
-##### 36:22
+##### 36,22
 Fiii lui Lotan sunt: Hori şi Heman, iar sora lui Lotan a fost Timna.
 
-##### 36:23
+##### 36,23
 Fiii lui Şobal sunt: Alvan, Manahat, Ebal, Şefo şi Onam.
 
-##### 36:24
+##### 36,24
 Fiii lui Ţibon sunt: Aia şi Ana. Acesta este acel Ana, care a găsit izvoarele de apă caldă în pustie, când păştea asinii tatălui său Ţibon.
 
-##### 36:25
+##### 36,25
 Copiii lui Ana sunt: Dişon şi Olibama, fata lui Ana.
 
-##### 36:26
+##### 36,26
 Copiii lui Dişon sunt: Hemdan, Eşban, Itran şi Cheran.
 
-##### 36:27
+##### 36,27
 Fiii lui Eţer sunt: Bilhan, Zaavan şi Acan.
 
-##### 36:28
+##### 36,28
 Fiii lui Dişan sunt: Uţ şi Aran.
 
-##### 36:29
+##### 36,29
 Deci căpeteniile Horeilor sunt acestea: căpetenia Lotan, căpetenia Şobal, căpetenia Ţibon, căpetenia Ana,
 
-##### 36:30
+##### 36,30
 Căpetenia Dişon, căpetenia Eţer, căpetenia Dişan. Acestea sunt căpeteniile Horeilor din ţara lui Seir, după familiile lor.
 
-##### 36:31
+##### 36,31
 Iată şi regii, care au domnit în pământul Edomului înainte de a domni vreun rege peste fiii lui Israel:
 
-##### 36:32
+##### 36,32
 În Edom a domnit mai întâi Bela, fiul lui Beor şi cetatea lui se numea Dinhaba.
 
-##### 36:33
+##### 36,33
 După ce a murit Bela, s-a făcut rege Iobab, fiul lui Zerah din Boţra.
 
-##### 36:34
+##### 36,34
 După ce a murit Iobab, s-a făcut rege Huşam, din ţara Temaniţilor.
 
-##### 36:35
+##### 36,35
 După ce a murit Huşam, s-a făcut rege Hadad, feciorul lui Bedad; care a bătut pe Madianiţi în câmpul Moab; numele cetăţii lui era Avit.
 
-##### 36:36
+##### 36,36
 Iar după ce a murit Hadad, s-a făcut rege Samla, din Masreca.
 
-##### 36:37
+##### 36,37
 Iar după ce a murit Samla, s-a făcut rege, în locul lui, Şaul, din Rehobotul de pe râu.
 
-##### 36:38
+##### 36,38
 Iar după ce a murit Şaul, s-a făcut rege Baal-Hanan, fiul lui Acbor.
 
-##### 36:39
+##### 36,39
 Iar după ce a murit Baal-Hanan, feciorul lui Acbor, s-a făcut rege Hadar, fiul lui Varad, şi numele cetăţii lui era Pau şi al femeii lui Mehetabel, fiica lui Matred, feciorul lui Mezahab.
 
-##### 36:40
+##### 36,40
 Iar numele căpeteniilor din Isav, după triburile lor, după ţările lor, după numirile şi naţiile lor sunt: căpetenia Timna, căpetenia Alvan, căpetenia Ietet,
 
-##### 36:41
+##### 36,41
 Căpetenia Olibama, căpetenia Ela, căpetenia Pinon,
 
-##### 36:42
+##### 36,42
 Căpetenia Chenaz, căpetenia Teman, căpetenia Mibţar,
 
-##### 36:43
+##### 36,43
 Căpetenia Magdiel, căpetenia Iram. Acestea sunt căpeteniile lui Edom, după aşezările lor în ţara stăpânită de ei. Acesta-i Isav, părintele Edomiţilor.
 
 
 ## Facerea - 37 - *Iosif vândut de frații săi*
 
-##### 37:1
+##### 37,1
 Iacov a locuit în ţara Canaan, unde locuise şi Isaac, tatăl său.
 
-##### 37:2
+##### 37,2
 Iată acum şi istoria urmaşilor lui Iacov: Iosif, fiind de şaptesprezece ani, păştea oile tatălui său împreună cu fraţii săi. Petrecându-şi copilăria cu feciorii Bilhăi şi cu feciorii Zilpei, femeile tatălui său, Iosif aducea lui Israel, tatăl său, veşti despre purtările lor rele.
 
-##### 37:3
+##### 37,3
 Şi iubea Israel pe Iosif mai mult decât pe toţi ceilalţi fii ai săi, pentru că el era copilul bătrâneţilor lui, şi-i făcuse haină lungă şi aleasă.
 
-##### 37:4
+##### 37,4
 Fraţii lui, văzând că tatăl lor îl iubea mai mult decât pe toţi fiii săi, îl urau şi nu puteau vorbi cu el prietenos.
 
-##### 37:5
+##### 37,5
 Visând însă Iosif un vis, l-a spus fraţilor săi,
 
-##### 37:6
+##### 37,6
 Zicându-le: «Ascultaţi visul ce am visat:
 
-##### 37:7
+##### 37,7
 Parcă legam snopi în ţarină şi snopul meu parcă s-a sculat şi stătea drept, iar snopii voştri s-au strâns roată şi s-au închinat snopului meu».
 
-##### 37:8
+##### 37,8
 Iar fraţii lui au zis către el: «Nu cumva ai să domneşti peste noi? Sau poate ai să ne stăpâneşti?». Şi l-au urât încă şi mai mult pentru visul lui şi pentru spusele lui.
 
-##### 37:9
+##### 37,9
 Şi a mai visat el alt vis şi l-a spus tatălui său şi fraţilor săi, zicând: «Iată am mai visat alt vis: soarele şi luna şi unsprezece stele mi se închinau mie».
 
-##### 37:10
+##### 37,10
 Şi-l povesti tatălui său şi fraţilor săi, iar tatăl său l-a certat şi i-a zis: «Ce înseamnă visul acesta pe care l-ai visat? Au doară eu şi mama ta şi fraţii tăi vom veni şi ne vom închina ţie până la pământ?».
 
-##### 37:11
+##### 37,11
 De aceea îl pizmuiau fraţii lui, iar tatăl său păstra cuvintele acestea în inima lui.
 
-##### 37:12
+##### 37,12
 S-au dus după aceea fraţii lui să pască oile tatălui lor la Sichem.
 
-##### 37:13
+##### 37,13
 Şi Israel a zis către Iosif: «Fraţii tăi pasc oile la Sichem. Vino, dar, să te trimit la ei». Iar el a zis: «Mă duc, tată!».
 
-##### 37:14
+##### 37,14
 Apoi Israel a zis către Iosif: «Du-te şi vezi de sunt sănătoşi fraţii tăi şi oile şi să-mi aduci răspuns!». L-a trimis astfel din valea Hebronului şi Iosif s-a dus la Sichem.
 
-##### 37:15
+##### 37,15
 După aceea l-a găsit un om rătăcind pe câmp şi l-a întrebat omul acela şi i-a zis: «Ce cauţi?».
 
-##### 37:16
+##### 37,16
 Iar el a zis: «Caut pe fraţii mei. Spune-mi, unde pasc ei oile?».
 
-##### 37:17
+##### 37,17
 Zisu-i-a omul acela: «S-au dus de aici, căci i-am auzit zicând: Haidem la Dotain!». Şi s-a dus Iosif după fraţii săi şi i-a găsit la Dotain.
 
-##### 37:18
+##### 37,18
 Iar ei, văzându-l de departe, până a nu se apropia de ei, au început a unelti asupra lui să-l omoare;
 
-##### 37:19
+##### 37,19
 Şi au zis unii către alţii: «Iată visătorul acela de vise vine!
 
-##### 37:20
+##### 37,20
 Haidem să-l omorâm, să-l aruncăm într-un puţ şi să zicem că l-a mâncat o fiară sălbatică şi vom vedea ce se va alege de visele lui!».
 
-##### 37:21
+##### 37,21
 Auzind însă aceasta, Ruben a voit să-l scape din mâinile lor, zicând: «Să nu-i ridicăm viaţa!».
 
-##### 37:22
+##### 37,22
 Apoi Ruben a adăugat: «Să nu vărsaţi sânge! Aruncaţi-l în puţul acela din pustie, dar mâinile să nu vi le puneţi pe el!». Iar aceasta o zicea el cu gândul de a-l scăpa din mâinile lor şi a-l trimite acasă la tatăl său.
 
-##### 37:23
+##### 37,23
 Când însă a sosit Iosif la fraţii săi, ei au dezbrăcat pe Iosif de haina cea lungă şi aleasă, cu care era îmbrăcat,
 
-##### 37:24
+##### 37,24
 Şi l-au luat şi l-au aruncat în puţ; dar puţul era gol şi nu avea apă.
 
-##### 37:25
+##### 37,25
 După aceea şezând să mănânce pâine şi căutând cu ochii lor, ei au văzut venind dinspre Galaad o caravană de Ismaeliţi, ale căror cămile erau încărcate cu tămâie, cu balsam şi cu smirnă, pe care le duceau în Egipt.
 
-##### 37:26
+##### 37,26
 Atunci a zis Iuda către fraţii săi: «Ce vom folosi de vom ucide pe fratele nostru şi vom ascunde sângele lui?
 
-##### 37:27
+##### 37,27
 Haidem să-l vindem Ismaeliţilor acestora, neridicându-ne mâinile asupra lui, pentru că e fratele nostru şi trupul nostru». Şi au ascultat fraţii lui.
 
-##### 37:28
+##### 37,28
 Iar când au trecut negustorii Madianiţi pe acolo, fraţii au tras şi au scos pe Iosif din puţ şi l-au vândut pe el Ismaeliţilor cu douăzeci de arginţi. Şi aceştia au dus pe Iosif în Egipt.
 
-##### 37:29
+##### 37,29
 Când însă s-a întors Ruben la puţ şi n-a văzut pe Iosif în puţ, el şi-a rupt hainele,
 
-##### 37:30
+##### 37,30
 Şi întorcându-se la fraţii săi, a zis: «Băiatul nu este! Încotro să apuc eu acum?».
 
-##### 37:31
+##### 37,31
 Atunci ei au luat haina lui Iosif şi, junghiind un ied, au muiat haina în sânge;
 
-##### 37:32
+##### 37,32
 Apoi au trimis după haina cea lungă şi aleasă şi au adus-o la tatăl lor, spunând. «Am găsit aceasta; vezi de este haina fiului tău sau nu!».
 
-##### 37:33
+##### 37,33
 Şi a cunoscut-o Iacov şi a zis: «Este haina fiului meu! L-a mâncat o fiară sălbatică; o fiară l-a sfâşiat pe Iosif!».
 
-##### 37:34
+##### 37,34
 Atunci şi-a rupt Iacov hainele sale şi-a acoperit cu sac coapsele şi a plâns pe fiul său zile multe.
 
-##### 37:35
+##### 37,35
 După aceea s-au adunat toţi feciorii lui şi toate fetele lui şi au venit să-l mângâie; dar el nu voia să se mângâie, ci zicea: «Plângând, mă voi pogorî în locuinţa morţilor la fiul meu!». Şi-l plângea astfel tatăl său.
 
-##### 37:36
+##### 37,36
 Iar Madianiţii au vândut pe Iosif în Egipt lui Putifar, dregător şi comandant al gărzii la curtea lui Faraon.
 
 
 ## Facerea - 38 - *Iuda și Tamara*
 
-##### 38:1
+##### 38,1
 În vremea aceea s-a întâmplat că Iuda s-a pogorât de la fraţii săi şi s-a aşezat lângă un adulamitean, cu numele Hira.
 
-##### 38:2
+##### 38,2
 Văzând Iuda acolo pe fata unui canaaneu, care se numea Şua, el a luat-o de soţie şi a intrat la ea.
 
-##### 38:3
+##### 38,3
 Şi ea, zămislind, a născut un băiat, şi Iuda i-a pus numele Ir.
 
-##### 38:4
+##### 38,4
 Zămislind iarăşi, a născut alt băiat şi i-a pus numele Onan.
 
-##### 38:5
+##### 38,5
 Şi a mai născut un băiat şi i-a pus numele Şela. Şi când a născut ea acest fiu, Iuda era la Kezib.
 
-##### 38:6
+##### 38,6
 Apoi Iuda a luat pentru Ir, întâiul născut al său, o femeie, cu numele Tamara.
 
-##### 38:7
+##### 38,7
 Dar Ir, întâiul născut al lui Iuda, a fost rău înaintea Domnului şi de aceea l-a omorât Domnul.
 
-##### 38:8
+##### 38,8
 Atunci a zis Iuda către Onan: «Intră la femeia fratelui tău, însoară-te cu ea, în puterea leviratului, şi ridică urmaşi fratelui tău!».
 
-##### 38:9
+##### 38,9
 Ştiind însă Onan că nu vor fi urmaşii ai lui, de aceea, când intra la femeia fratelui său, el vărsa sămânţa jos, ca să nu ridice urmaşi fratelui său.
 
-##### 38:10
+##### 38,10
 Ceea ce făcea el era rău înaintea lui Dumnezeu şi l-a omorât şi pe acesta.
 
-##### 38:11
+##### 38,11
 Atunci a zis Iuda către Tamara, nora sa, după moartea celor doi fii ai săi: «Stai văduvă în casa tatălui tău, până se va face mare Şela, fiul meu!». Căci îşi zicea: «Nu cumva să moară şi acesta, ca şi fraţii lui!». Şi s-a dus Tamara şi a trăit în casa tatălui ei.
 
-##### 38:12
+##### 38,12
 Trecând însă vreme multă, a murit fata lui Şua, soţia lui Iuda. Iar Iuda, după ce au trecut zilele de jelire, s-a dus în Timna, la cei ce tundeau oile lui, împreună cu prietenul său Hira adulamiteanul.
 
-##### 38:13
+##### 38,13
 Atunci i s-a vestit Tamarei, nora sa, zicându-i-se: «Iată socrul tău merge la Timna să-şi tundă oile».
 
-##### 38:14
+##### 38,14
 Iar ea, dezbrăcând de pe sine hainele sale de văduvie, s-a înfăşurat cu un văl şi, gătindu-se, a ieşit şi a şezut la poarta Enaim, care este în drumul spre Timna, căci vedea că Şela crescuse mare şi ea nu-i fusese dată lui de soţie.
 
-##### 38:15
+##### 38,15
 Şi, văzând-o Iuda, a socotit că este o femeie nărăvită, căci n-a cunoscut-o, pentru că îşi avea faţa acoperită.
 
-##### 38:16
+##### 38,16
 Şi abătându-se din cale pe la ea, i-a zis: «Lasă-mă să intru la tine!». Căci nu ştia că este nora sa. Iar ea a zis: «Ce ai să-mi dai, dacă vei intra la mine?».
 
-##### 38:17
+##### 38,17
 Iar el i-a răspuns: «Îţi voi trimite un ied din turma mea». Şi ea a zis: «Bine, dar să-mi dai ceva zălog până mi-l vei trimite».
 
-##### 38:18
+##### 38,18
 Răspuns-a Iuda: «Ce zălog să-ţi dau?». Şi ea a zis: «Inelul tău, cingătoarea ta şi toiagul ce-l ai în mână». Şi el i le-a dat şi a intrat la ea şi ea a rămas grea.
 
-##### 38:19
+##### 38,19
 Apoi, sculându-se, ea s-a dus şi-a scos vălul său şi s-a îmbrăcat iar cu hainele sale de văduvie.
 
-##### 38:20
+##### 38,20
 Iar Iuda a trimis iedul pe adulamitean, prietenul său, ca să ia zălogul din mâinile femeii. Dar n-a mai găsit-o.
 
-##### 38:21
+##### 38,21
 Şi a întrebat pe oamenii locului aceluia: «Unde este femeia cea nărăvită, care şedea la Enaim, la drum?». Iar aceia i-au răspuns: «N-a fost aici nicio femeie nărăvită!».
 
-##### 38:22
+##### 38,22
 S-a întors deci acela la Iuda şi a zis: «N-am găsit-o şi oamenii de acolo mi-au spus că n-a fost acolo nicio femeie nărăvită!».
 
-##### 38:23
+##### 38,23
 Atunci Iuda a zis: «Să şi le ţie! Numai de nu ne-ar face de batjocură. Iată, eu i-am trimis iedul, dar tu n-ai găsit-o».
 
-##### 38:24
+##### 38,24
 Dar, cam după vreo trei luni, i s-a spus lui Iuda: «Tamara, nora ta, a căzut în desfrânare şi iată a rămas însărcinată din desfrânare». Iar Iuda a zis: «Scoateţi-o şi să fie arsă».
 
-##### 38:25
+##### 38,25
 Dar când o duceau, ea a trimis la socrul său, zicând: «Eu sunt îngreunată de acela ale căruia sunt lucrurile acestea». Apoi a adăugat: «Află al cui e inelul acesta, cingătoarea aceasta şi toiagul acesta!».
 
-##### 38:26
+##### 38,26
 Şi le-a cunoscut Iuda şi a zis: «Tamara e mai dreaptă decât mine, pentru că nu am dat-o lui Şela, fiul meu». Şi n-a mai cunoscut-o pe ea.
 
-##### 38:27
+##### 38,27
 Iar când era să nască, s-a aflat că are în pântece doi gemeni.
 
-##### 38:28
+##### 38,28
 În vremea naşterii s-a ivit mâna unuia, iar moaşa a luat şi i-a legat la mână un fir de aţă roşie, zicând: «Acesta a ieşit întâi».
 
-##### 38:29
+##### 38,29
 Dar acesta şi-a tras mâna înapoi şi îndată a ieşit fratele lui. Şi ea a zis: «Cum ai rupt tu piedica? Ruptura să fie asupra ta!». Şi i-a pus numele Fares.
 
-##### 38:30
+##### 38,30
 După aceea a ieşit şi fratele lui, cu firul de aţă roşie la mână, şi i s-a pus numele Zara.
 
 
 ## Facerea - 39 - *Iosif în Egipt*
 
-##### 39:1
+##### 39,1
 Deci Iosif a fost dus în Egipt şi din mâna Ismaeliţilor, care l-au dus acolo, l-a cumpărat egipteanul Putifar, o căpetenie de la curtea lui Faraon şi comandantul gărzii lui.
 
-##### 39:2
+##### 39,2
 Domnul însă era cu Iosif şi el era om îndemânatic şi trăia în casa egipteanului, stăpânul său.
 
-##### 39:3
+##### 39,3
 Stăpânul său vedea că Domnul era cu dânsul şi că toate câte făcea el, Domnul le sporea în mâna lui.
 
-##### 39:4
+##### 39,4
 De aceea a aflat Iosif trecere înaintea stăpânului său şi i-a plăcut şi l-a pus peste casa sa şi toate câte avea le-a dat pe mâna lui Iosif.
 
-##### 39:5
+##### 39,5
 Iar după ce l-a pus peste casa sa şi peste toate câte avea, a binecuvântat Domnul casa egipteanului pentru Iosif şi era binecuvântarea Domnului peste tot ce avea el în casa şi în ţarina sa.
 
-##### 39:6
+##### 39,6
 Şi a lăsat Putifar pe mâna lui Iosif tot ce avea şi, de când îl avea pe el, nu purta grijă de nimic din câte avea, fără numai de pâinea ce mânca. Iosif însă era chipeş la statură şi foarte frumos la față.
 
-##### 39:7
+##### 39,7
 Aşa fiind, femeia stăpânului său şi-a pus ochii pe Iosif şi i-a zis: «Culcă-te cu mine!».
 
-##### 39:8
+##### 39,8
 Iar el n-a voit, ci a zis către femeia stăpânului său: «De când sunt aici, stăpânul meu nu poartă grijă de nimic în casa sa, ci toate câte are le-a dat pe mâna mea.
 
-##### 39:9
+##### 39,9
 În casa aceasta nu-i nimeni mai mare decât mine şi de la nimic nu sunt oprit decât numai de la tine, pentru că tu eşti femeia lui. Cum dar să fac eu acest mare rău şi să păcătuiesc înaintea lui Dumnezeu?».
 
-##### 39:10
+##### 39,10
 Dar, deşi ea zicea aşa lui Iosif în toate zilele, el n-o asculta să se culce cu ea, nici să fie cu ea.
 
-##### 39:11
+##### 39,11
 Se întâmplă într-o zi să intre Iosif în casă după treburile sale şi, nefiind în casă vreunul din casnici,
 
-##### 39:12
+##### 39,12
 Ea l-a apucat de haină şi i-a zis: «Culcă-te cu mine!». El însă, lăsând haina în mâinile ei, a fugit şi a ieşit afară.
 
-##### 39:13
+##### 39,13
 Iar ea, când a văzut că el, lăsându-şi haina în mâinile ei, a fugit şi a ieşit afară,
 
-##### 39:14
+##### 39,14
 A strigat pe casnicii săi şi le-a zis aşa: «Priviţi, ne-a adus aici slugă un evreu, ca să-şi bată joc de noi. Căci a intrat la mine şi mi-a zis: «Culcă-te cu mine!». Eu însă am strigat tare.
 
-##### 39:15
+##### 39,15
 Auzind el că am ridicat glasul şi am strigat, lăsându-şi haina la mine, a fugit şi a ieşit afară».
 
-##### 39:16
+##### 39,16
 Şi a ţinut ea haina la sine până a venit stăpânul lui acasă.
 
-##### 39:17
+##### 39,17
 Atunci i-a spus şi lui aceleaşi vorbe, zicând: «Acel rob evreu, pe care l-ai adus la noi, a venit la mine să mă batjocorească şi mi-a zis: «Culcă-te cu mine!».
 
-##### 39:18
+##### 39,18
 Dar când a auzit că am ridicat glasul şi am început să strig, s-a temut şi, lăsându-şi haina la mine, a fugit şi a ieşit afară».
 
-##### 39:19
+##### 39,19
 Auzind stăpânul lui cuvintele femeii sale, câte îi spusese despre el, zicând: «Aşa şi aşa s-a purtat cu mine sluga ta!», s-a aprins de mânie,
 
-##### 39:20
+##### 39,20
 Şi luând stăpânul pe Iosif, l-a băgat în temniţă, unde erau închişi cei ce greşeau regelui. Şi a rămas el acolo în temniţă.
 
-##### 39:21
+##### 39,21
 Dar Domnul era cu Iosif, a revărsat milă asupra lui şi i-a dăruit trecere înaintea mai-marelui temniţei,
 
-##### 39:22
+##### 39,22
 Încât mai-marele temniţei a dat pe mâna lui Iosif temniţa şi pe toţi osândiţii, care erau în temniţă, şi orice era de făcut acolo, el făcea.
 
-##### 39:23
+##### 39,23
 Iar mai-marele temniţei nu avea nicio frică de nimic, că toate erau pe mâna lui Iosif, pentru că Domnul era cu el şi toate câte făcea, Domnul le sporea în mâinile lui.
 
 
 ## Facerea - 40 - *Iosif tâlcuiește visele în temniță*
 
-##### 40:1
+##### 40,1
 S-a întâmplat însă după aceasta ca marele paharnic al regelui Egiptului şi marele pitar să greşească înaintea regelui Egiptului, stăpânul lor.
 
-##### 40:2
+##### 40,2
 Atunci s-a mâniat Faraon pe cei doi dregători ai săi: pe mai-marele paharnic şi pe mai-marele pitar
 
-##### 40:3
+##### 40,3
 Şi i-a pus sub pază în temniţă, în casa căpeteniei gărzii, unde era închis Iosif.
 
-##### 40:4
+##### 40,4
 Iar căpetenia temniţei a rânduit la ei pe Iosif să le slujească; şi au rămas ei câteva zile în temniţă.
 
-##### 40:5
+##### 40,5
 Într-o noapte însă mai-marele pitar şi mai-marele paharnic ai regelui Egiptului, care erau închişi în temniţă, au visat amândoi vise; dar fiecare visul său şi fiecare vis cu înţelesul lui.
 
-##### 40:6
+##### 40,6
 Iar dimineaţa, când a intrat Iosif la ei, iată erau tulburaţi.
 
-##### 40:7
+##### 40,7
 Şi a întrebat Iosif pe dregătorii lui Faraon, care erau cu el la stăpânul său sub pază, şi le-a zis: «De ce sunt astăzi triste feţele voastre?».
 
-##### 40:8
+##### 40,8
 Iar ei au răspuns: «Am visat nişte vise şi nu are cine ni le tâlcui». Zis-a lor Iosif: «Oare tâlcuirile nu sunt ele de la Dumnezeu? Spuneţi-mi dar visele voastre!».
 
-##### 40:9
+##### 40,9
 Atunci a spus marele paharnic visul său lui Iosif şi a zis: «Eu am văzut în vis că era înaintea mea o coardă de vie;
 
-##### 40:10
+##### 40,10
 Şi coarda aceea avea trei viţe; apoi a înfrunzit, a înflorit şi au crescut struguri şi s-au copt.
 
-##### 40:11
+##### 40,11
 Şi paharul lui Faraon era în mâna mea; şi părea că am luat un strugure şi l-am stors în paharul lui Faraon şi am dat paharul în mâna lui Faraon».
 
-##### 40:12
+##### 40,12
 Acestuia Iosif i-a zis: «Iată tâlcuirea visului tău: cele trei viţe înseamnă trei zile.
 
-##### 40:13
+##### 40,13
 După trei zile îşi va aduce aminte Faraon de dregătoria ta şi te va pune iarăşi în slujba ta; şi vei da lui Faraon paharul în mână, cum făceai mai înainte, când erai paharnic la el.
 
-##### 40:14
+##### 40,14
 Deci, când vei fi la bine, adu-ţi aminte şi de mine şi fă-mi bine de pune pentru mine cuvânt la Faraon şi mă scoate din închisoarea aceasta;
 
-##### 40:15
+##### 40,15
 Căci eu sunt furat din pământul Evreilor; şi nici aici n-am făcut nimic, ca să fiu aruncat în temniţa aceasta».
 
-##### 40:16
+##### 40,16
 Văzând mai-marele pitar că a tâlcuit bine, a zis către Iosif: «Şi eu am visat un vis: şi iată că aveam pe cap trei panere cu pâine.
 
-##### 40:17
+##### 40,17
 Iar în panerul cel mai de deasupra se aflau toate felurile de aluaturi coapte, din care mănâncă Faraon, şi păsările cerului le ciuguleau din panerul cel de pe capul meu».
 
-##### 40:18
+##### 40,18
 Răspunzând acestuia, Iosif i-a zis: «Iată şi tâlcuirea visului tău: cele trei panere înseamnă trei zile.
 
-##### 40:19
+##### 40,19
 După trei zile Faraon îţi va lua capul şi te va spânzura pe un lemn şi păsările cerului îţi vor ciuguli carnea».
 
-##### 40:20
+##### 40,20
 Iar a treia zi, fiind ziua naşterii lui Faraon, a făcut acesta ospăţ pentru toţi dregătorii săi şi în mijlocul dregătorilor săi şi-a adus aminte de paharnic şi de mai-marele pitar;
 
-##### 40:21
+##### 40,21
 Şi a pus iarăşi pe mai-marele paharnic în dregătoria lui, şi dădea el paharul lui Faraon în mână;
 
-##### 40:22
+##### 40,22
 Iar pe mai-marele pitar l-a spânzurat, după tâlcuirea pe care o făcuse Iosif.
 
-##### 40:23
+##### 40,23
 Dar mai-marele paharnic nu şi-a mai adus aminte de Iosif, ci l-a uitat.
 
 
 ## Facerea - 41 - *Iosif tâlcuiește visele lui Faraon*
 
-##### 41:1
+##### 41,1
 La doi ani după aceea, a visat şi Faraon un vis. Se făcea că stătea lângă râu;
 
-##### 41:2
+##### 41,2
 Şi iată că au ieşit din râu şapte vaci, frumoase la înfăţişare şi grase la trup, şi păşteau pe mal.
 
-##### 41:3
+##### 41,3
 Iar după ele au ieşit alte şapte vaci, urâte la chip şi slabe la trup, şi au stat pe malul râului lângă celelalte vaci;
 
-##### 41:4
+##### 41,4
 Şi vacile cele urâte şi slabe la trup au mâncat pe cele şapte vaci frumoase la chip şi grase la trup; şi s-a trezit Faraon.
 
-##### 41:5
+##### 41,5
 Apoi iar a adormit şi a mai visat un vis: iată se ridicau dintr-o tulpină de grâu şapte spice frumoase şi pline;
 
-##### 41:6
+##### 41,6
 Şi după ele au ieşit alte şapte spice subţiri, seci şi pălite de vântul de răsărit;
 
-##### 41:7
+##### 41,7
 Şi cele şapte spice seci şi pălite au mâncat pe cele şapte spice grase şi pline. Şi s-a trezit Faraon şi a înţeles că era vis.
 
-##### 41:8
+##### 41,8
 Iar dimineaţa s-a tulburat duhul lui Faraon şi a trimis să cheme pe toţi magii Egiptului şi pe toţi înţelepţii lui; şi le-a povestit Faraon visul său, dar nu s-a găsit cine să-l tâlcuiască lui Faraon.
 
-##### 41:9
+##### 41,9
 Atunci a început mai-marele paharnic să grăiască lui Faraon şi a zis: «Îmi aduc aminte astăzi de păcatele mele:
 
-##### 41:10
+##### 41,10
 S-a mâniat odată Faraon pe dregătorii săi şi ne-a pus, pe mine şi pe mai-marele pitar, sub pază în casa căpeteniei gărzii.
 
-##### 41:11
+##### 41,11
 Atunci amândoi, şi eu şi el, am visat într-o noapte câte un vis, dar fiecare am visat vis deosebit şi cu însemnare deosebită.
 
-##### 41:12
+##### 41,12
 Acolo cu noi era şi un tânăr evreu, un rob al căpeteniei gărzii, şi spunându-i noi visele noastre, ni le-a tâlcuit, fiecăruia cu înţelesul lui.
 
-##### 41:13
+##### 41,13
 Şi cum ne-a tâlcuit el, aşa s-a şi întâmplat: eu să fiu pus iar în dregătoria mea, iar acela să fie spânzurat».
 
-##### 41:14
+##### 41,14
 Atunci a trimis Faraon să cheme pe Iosif. Şi scoţându-l îndată din temniţă, l-au tuns, i-au primenit hainele şi a venit la Faraon.
 
-##### 41:15
+##### 41,15
 Iar Faraon a zis către Iosif: «Am visat un vis şi n-are cine mi-l tâlcui. Am auzit însă zicându-se despre tine că, de auzi un vis, îl tâlcuieşti».
 
-##### 41:16
+##### 41,16
 Iosif însă răspunzând, a zis către Faraon: «Nu eu, ci Dumnezeu va da răspuns pentru liniştirea lui Faraon».
 
-##### 41:17
+##### 41,17
 A grăit apoi Faraon lui Iosif şi a zis: «Am visat că parcă stăteam pe malul râului
 
-##### 41:18
+##### 41,18
 Şi iată au ieşit din râu şapte vaci grase la trup şi frumoase la chip şi păşteau pe mal.
 
-##### 41:19
+##### 41,19
 Şi după ele au ieşit alte şapte vaci rele şi urâte la chip şi slabe la trup, cum eu n-am văzut asemenea în toată ţara Egiptului;
 
-##### 41:20
+##### 41,20
 Şi vacile urâte şi slabe au mâncat pe cele şapte vaci grase şi frumoase.
 
-##### 41:21
+##### 41,21
 Şi au intrat cele grase în pântecele lor şi nu se cunoştea că au intrat ele în pântecele acestora, căci acestea erau tot urâte la chip, ca şi mai înainte. Apoi, deşteptându-mă, am adormit iar.
 
-##### 41:22
+##### 41,22
 Şi am visat iar un vis că dintr-o tulpină au ieşit şapte spice pline şi frumoase.
 
-##### 41:23
+##### 41,23
 Şi după ele au ieşit alte şapte spice slabe, seci şi pălite de vântul de răsărit;
 
-##### 41:24
+##### 41,24
 Şi cele şapte spice seci şi pălite au mâncat pe cele şapte spice frumoase şi pline. Am povestit acestea magilor, dar nimeni nu mi le-a tâlcuit».
 
-##### 41:25
+##### 41,25
 Atunci a zis Iosif către Faraon: «Visul lui Faraon este unul: Dumnezeu a vestit lui Faraon cele ce voieşte să facă.
 
-##### 41:26
+##### 41,26
 Cele şapte vaci frumoase înseamnă şapte ani; cele şapte spice frumoase înseamnă şapte ani; visul lui Faraon este unul.
 
-##### 41:27
+##### 41,27
 Cele şapte vaci urâte şi slabe, care au ieşit după ele, înseamnă şapte ani; de asemenea şi cele şapte spice, seci şi pălite de vântul de răsărit, înseamnă şapte ani. Vor fi şapte ani de foamete.
 
-##### 41:28
+##### 41,28
 Iată pentru ce am spus eu lui Faraon că Dumnezeu a arătat lui cele ce voieşte să facă.
 
-##### 41:29
+##### 41,29
 Iată, vin şapte ani de belşug mare în tot pământul Egiptului.
 
-##### 41:30
+##### 41,30
 După ei vor veni şapte ani de foamete şi se va uita tot belşugul acela în pământul Egiptului şi foametea va secătui toată țara.
 
-##### 41:31
+##### 41,31
 Şi belşugul de altădată nu se va mai simţi în ţară, după foametea care va urma, că va fi foarte grea.
 
-##### 41:32
+##### 41,32
 Iar că visul s-a arătat de două ori lui Faraon, aceasta înseamnă că lucrul este hotărât de Dumnezeu şi că El se grăbeşte să-l plinească.
 
-##### 41:33
+##### 41,33
 Şi acum să aleagă Faraon un bărbat priceput şi înţelept şi să-l pună peste pământul Egiptului.
 
-##### 41:34
+##### 41,34
 Să poruncească dar Faraon să se pună supraveghetori peste ţară, ca să adune în cei şapte ani de belşug a cincea parte din toate roadele pământului Egiptului.
 
-##### 41:35
+##### 41,35
 Să strângă aceia toată pâinea de prisos în aceşti ani buni ce vin şi s-o adune în cetăţile pâinii, sub mâna lui Faraon, şi să o păstreze spre hrană;
 
-##### 41:36
+##### 41,36
 Hrana aceasta va fi de rezervă în ţară pentru cei şapte ani de foamete, care vor urma în ţara Egiptului, ca să nu piară ţara de foame».
 
-##### 41:37
+##### 41,37
 Aceasta a plăcut lui Faraon şi tuturor dregătorilor lui.
 
-##### 41:38
+##### 41,38
 Şi a zis Faraon către toţi dregătorii săi: «Am mai putea găsi, oare, un om, ca el, în care să fie duhul lui Dumnezeu?».
 
-##### 41:39
+##### 41,39
 Apoi a zis Faraon către Iosif: «De vreme ce Dumnezeu ţi-a descoperit toate acestea, nu se află om mai înţelept şi mai priceput decât tine.
 
-##### 41:40
+##### 41,40
 Să fii dar tu peste casa mea. De cuvântul tău se va povăţui tot poporul meu şi numai prin tronul meu voi fi mai mare decât tine!».
 
-##### 41:41
+##### 41,41
 Apoi Faraon a zis lui Iosif: «Iată, eu te pun astăzi peste tot pământul Egiptului!».
 
-##### 41:42
+##### 41,42
 Şi şi-a scos Faraon inelul din degetul său şi l-a pus în degetul lui Iosif, l-a îmbrăcat cu haină de vison şi i-a pus lanţ de aur împrejurul gâtului lui.
 
-##### 41:43
+##### 41,43
 Apoi a poruncit să fie purtat în a doua trăsură a sa şi să strige înaintea lui: «Cădeţi în genunchi!». Şi aşa a fost Iosif pus peste tot pământul Egiptului.
 
-##### 41:44
+##### 41,44
 Şi a zis iarăşi Faraon către Iosif: «Eu sunt Faraon! Dar fără ştirea ta, nimeni nu are să-şi mişte nici mâna sa, nici piciorul său, în tot pământul Egiptului!».
 
-##### 41:45
+##### 41,45
 Şi a pus Faraon lui Iosif numele Ţafnat-Paneah şi i-a dat de soţie pe Asineta, fiica lui Poti-Fera, marele preot din Iliopolis.
 
-##### 41:46
+##### 41,46
 Iosif era de treizeci de ani când s-a înfăţişat înaintea lui Faraon, regele Egiptului. Ieşind după aceea de la faţa lui Faraon, Iosif s-a dus să vadă toată ţara Egiptului.
 
-##### 41:47
+##### 41,47
 Şi a rodit pământul în cei şapte ani de belşug câte un pumn dintr-un grăunte.
 
-##### 41:48
+##### 41,48
 Şi a adunat Iosif în cei şapte ani, care au fost cu belşug în ţara Egiptului, toată pâinea de prisos şi a pus pâinea prin cetăţi; în fiecare cetate a strâns pâinea din ţinuturile dimprejurul ei.
 
-##### 41:49
+##### 41,49
 Astfel a strâns Iosif grâu mult foarte, ca nisipul mării, încât nici seamă nu se mai ţinea, căci nu se mai putea socoti.
 
-##### 41:50
+##### 41,50
 Dar înainte de a sosi anii de foamete, lui Iosif i s-au născut doi fii, pe care i-a născut Asineta, fata lui Poti-Fera, preotul din Iliopolis.
 
-##### 41:51
+##### 41,51
 Celui întâi-născut, Iosif i-a pus numele Manase, pentru că şi-a zis: «M-a învrednicit Dumnezeu să uit toate necazurile mele şi toate ale casei tatălui meu»;
 
-##### 41:52
+##### 41,52
 Iar celuilalt i-a pus numele Efraim, pentru că şi-a zis: «Dumnezeu m-a făcut roditor în pământul suferinţei mele».
 
-##### 41:53
+##### 41,53
 Iar după ce au trecut cei şapte ani de belşug, care au fost în ţara Egiptului,
 
-##### 41:54
+##### 41,54
 Au venit cei şapte ani de foamete, după cum spusese Iosif. Atunci s-a făcut foamete în tot pământul, dar în toată ţara Egiptului era pâine.
 
-##### 41:55
+##### 41,55
 Când însă a început să sufere de foame şi toată ţara Egiptului, atunci poporul a început a cere pâine la Faraon, iar Faraon a zis către toţi Egiptenii: «Duceţi-vă la Iosif şi faceţi cum vă va zice el!».
 
-##### 41:56
+##### 41,56
 Aşadar, fiind foamete pe toată faţa pământului, a deschis Iosif toate jitniţele şi a început a vinde pâine tuturor Egiptenilor.
 
-##### 41:57
+##### 41,57
 Şi veneau din toate ţările în Egipt, să cumpere pâine de la Iosif, căci foametea se întinsese peste tot pământul.
 
 
 ## Facerea - 42 - *Frații lui Iosif în Egip*
 
-##### 42:1
+##### 42,1
 Aflând Iacov că este grâu în Egipt, a zis către fiii săi: «Ce vă uitaţi unul la altul?
 
-##### 42:2
+##### 42,2
 Iată, am auzit că este grâu în Egipt. Duceţi-vă acolo şi cumpăraţi puţine bucate, ca să trăim şi să nu murim!».
 
-##### 42:3
+##### 42,3
 Atunci cei zece din fraţii lui Iosif s-au dus să cumpere grâu din Egipt,
 
-##### 42:4
+##### 42,4
 Iar pe Veniamin, fratele lui Iosif, nu l-a trimis Iacov cu fraţii lui, căci zicea: «Nu cumva să i se întâmple vreun rău!».
 
-##### 42:5
+##### 42,5
 Au venit deci fiii lui Israel împreună cu alţii, care se pogorau să cumpere grâu, căci era foamete şi în pământul Canaanului.
 
-##### 42:6
+##### 42,6
 Iar Iosif era căpetenie peste ţara Egiptului şi tot el vindea la tot poporul ţării. Şi sosind fraţii lui Iosif, i s-au închinat lui până la pământ.
 
-##### 42:7
+##### 42,7
 Când a văzut Iosif pe fraţii săi, i-a cunoscut, dar s-a prefăcut că este străin de ei, le-a grăit aspru şi le-a zis: «De unde aţi venit?». Iar ei au zis: «Din pământul Canaanului, să cumpărăm bucate!».
 
-##### 42:8
+##### 42,8
 Iosif însă a cunoscut pe fraţii săi, iar ei nu l-au cunoscut.
 
-##### 42:9
+##### 42,9
 Atunci şi-a adus aminte Iosif de visele sale, pe care le visase despre ei, şi le-a zis: «Spioni sunteţi şi aţi venit să iscodiţi locurile slabe ale țării!».
 
-##### 42:10
+##### 42,10
 Zis-au ei: «Ba nu, domnul nostru! Robii tăi au venit să cumpere bucate.
 
-##### 42:11
+##### 42,11
 Toţi suntem feciorii unui om şi suntem oameni cinstiţi. Robii tăi nu sunt spioni!».
 
-##### 42:12
+##### 42,12
 Iar el le-a zis: «Ba nu! Ci aţi venit să spionaţi părţile slabe ale ţării».
 
-##### 42:13
+##### 42,13
 Ei însă au răspuns: «Noi, robii tăi, suntem doisprezece fraţi din pământul Canaan: cel mai mic e astăzi cu tatăl nostru, iar unul nu mai trăieşte».
 
-##### 42:14
+##### 42,14
 Iosif însă le-a zis: «E tocmai cum v-am spus eu, când am zis că sunteţi spioni.
 
-##### 42:15
+##### 42,15
 Iată cu ce veţi dovedi: pe viaţa lui Faraon, nu veţi ieşi de aici, până nu va veni aci fratele vostru cel mai mic.
 
-##### 42:16
+##### 42,16
 Trimiteţi dar pe unul din voi să aducă pe fratele vostru; iar ceilalţi veţi fi închişi până se vor dovedi spusele voastre de sunt adevărate sau nu; iar de nu, pe viaţa lui Faraon, sunteţi cu adevărat spioni».
 
-##### 42:17
+##### 42,17
 Şi i-a pus sub pază vreme de trei zile.
 
-##### 42:18
+##### 42,18
 Iar a treia zi a zis Iosif către ei: «Faceţi aceasta ca să fiţi vii! Eu sunt om cu frica lui Dumnezeu.
 
-##### 42:19
+##### 42,19
 De sunteţi oameni cinstiţi, să rămână închis un frate al vostru; iar ceilalţi duceţi-vă şi duceţi grâul ce aţi cumpărat, ca să nu sufere de foame familiile voastre.
 
-##### 42:20
+##### 42,20
 Dar să aduceţi la mine pe fratele vostru cel mai mic, ca să se adeverească cuvintele voastre, şi nu veţi muri». Şi ei au făcut aşa.
 
-##### 42:21
+##### 42,21
 Ziceau însă unii către alţii: «Cu adevărat suntem pedepsiţi pentru păcatul ce am săvârşit împotriva fratelui nostru, căci am văzut zbuciumul sufletului lui când se ruga, şi nu ne-a fost milă de el şi nu l-am ascultat, şi de aceea a venit peste noi urgia aceasta!».
 
-##### 42:22
+##### 42,22
 Atunci răspunzând Ruben, le-a zis: «Nu v-am spus eu să nu faceţi nedreptate băiatului? Voi însă nu m-aţi ascultat şi iată acum sângele lui cere răzbunare».
 
-##### 42:23
+##### 42,23
 Aşa grăiau ei între ei şi nu ştiau că Iosif înţelege, pentru că el grăise cu ei prin tălmaci.
 
-##### 42:24
+##### 42,24
 Iar Iosif s-a depărtat de la ei şi a plâns. Apoi întorcându-se iarăşi şi vorbind cu dânşii, a luat dintre ei pe Simeon şi l-a legat înaintea ochilor lor.
 
-##### 42:25
+##### 42,25
 După aceea a poruncit Iosif să le umple sacii cu grâu şi argintul lor să-l pună fiecăruia în sacul lui şi să le dea şi de ale mâncării pe cale. Şi li s-a făcut aşa.
 
-##### 42:26
+##### 42,26
 Şi punându-şi ei grâul pe asini, s-au dus de acolo.
 
-##### 42:27
+##### 42,27
 Dar când au poposit noaptea la gazdă, dezlegându-şi unul sacul, ca să dea de mâncare asinului său, a văzut argintul său în gura sacului
 
-##### 42:28
+##### 42,28
 Şi a zis către fraţii săi: «Argintul meu mi s-a dat înapoi şi iată-l în sacul meu». Atunci s-a tulburat inima lor şi cu spaimă zicea unul către altul: «Ce a făcut, oare, Dumnezeu cu noi?».
 
-##### 42:29
+##### 42,29
 Iar dacă au venit la Iacov, tatăl lor, în ţara Canaan, i-au povestit toate câte li se întâmplase, zicând:
 
-##### 42:30
+##### 42,30
 «Stăpânul ţării aceleia a grăit cu noi aspru şi ne-a pus sub pază, ca pe nişte spioni ai ţării aceleia.
 
-##### 42:31
+##### 42,31
 Noi însă i-am spus că suntem oameni cinstiţi; că nu suntem spioni;
 
-##### 42:32
+##### 42,32
 Că suntem doisprezece fraţi, fii ai aceluiaşi tată; că unul din noi nu mai trăieşte, iar cel mai mic e cu tatăl nostru în pământul Canaan.
 
-##### 42:33
+##### 42,33
 Însă omul, stăpânul ţării aceleia, ne-a zis: «Iată cum am să aflu eu de sunteţi oameni cinstiţi: lăsaţi aici la mine pe un frate, iar grâul ce ați cumpărat luaţi-l şi vă duceţi la casele voastre;
 
-##### 42:34
+##### 42,34
 Să aduceți însă la mine pe fratele vostru cel mai mic şi atunci voi şti că nu sunteţi spioni, ci oameni de pace, şi vă voi da pe fratele vostru şi veţi putea face cumpărături în ţara aceasta».
 
-##### 42:35
+##### 42,35
 Dar deşertând ei sacii lor, iată, legătura cu argintul fiecăruia era în sacul său; şi văzându-şi ei legăturile cu argintul lor, s-au spăimântat şi ei şi tatăl lor.
 
-##### 42:36
+##### 42,36
 Atunci, Iacov, tatăl lor, a zis către ei: «M-aţi lăsat fără copii! Iosif nu mai este! Simeon nu mai este! Şi acum să-mi luaţi şi pe Veniamin? Toate au venit pe capul meu!».
 
-##### 42:37
+##### 42,37
 Răspunzând însă Ruben a zis către tatăl său: «Dă-l în seama mea şi ţi-l voi aduce; răspund eu de el; iar de nu ţi-l voi aduce, să omori pe cei doi feciori ai mei!».
 
-##### 42:38
+##### 42,38
 Dar el a zis: «Fiul meu nu se va pogorî cu voi în Egipt, pentru că fratele lui a murit şi numai el mi-a mai rămas. Şi de i s-ar întâmpla vreun rău în calea în care aveţi a merge, aţi pogorî cărunteţile mele cu întristare în locuinţa morţilor!».
 
 
 ## Facerea - 43 - *A doua călătorie a fraților lui Iosif în Egipt*
 
-##### 43:1
+##### 43,1
 Dar întărindu-se foametea pe pământ,
 
-##### 43:2
+##### 43,2
 Şi isprăvind de mâncat grâul ce-l aduseseră din Egipt, a zis tatăl lor către ei: «Duceţi-vă iar de mai cumpăraţi bucate!».
 
-##### 43:3
+##### 43,3
 Răspunsu-i-a Iuda şi a zis: «Omul acela, stăpânul ţării, ne-a grăit cu jurământ şi ne-a zis: De nu va veni cu voi fratele vostru cel mai mic, nu veţi mai vedea faţa mea.
 
-##### 43:4
+##### 43,4
 Deci, dacă trimiţi pe fratele nostru cu noi, ne ducem să-ţi cumpărăm bucate;
 
-##### 43:5
+##### 43,5
 Iar de nu trimiţi pe fratele nostru cu noi, nu ne ducem, căci omul acela a zis: Nu veţi mai vedea faţa mea, de nu va veni cu voi fratele vostru!».
 
-##### 43:6
+##### 43,6
 Zis-a Israel: «De ce mi-aţi făcut răul acesta, spunând omului aceluia că mai aveţi un frate?».
 
-##### 43:7
+##### 43,7
 Iar ei au răspuns: «Omul acela a întrebat despre noi şi despre neamul nostru, zicând: Mai trăieşte oare tatăl vostru şi mai aveţi voi vreun frate? Şi noi i-am răspuns la aceste întrebări. N-am ştiut că ne va zice: Aduceţi pe fratele vostru!».
 
-##### 43:8
+##### 43,8
 Iuda însă a zis către Israel, tatăl său: «Trimite băiatul cu mine şi să ne sculăm să mergem, ca să trăim şi să nu murim nici noi, nici tu, nici copiii noştri.
 
-##### 43:9
+##### 43,9
 Răspund eu de el. Din mâna mea să-l ceri. De nu ţi-l voi aduce şi de nu ţi-l voi înfăţişa, să rămân vinovat faţă de tine în toate zilele vieţii mele.
 
-##### 43:10
+##### 43,10
 De n-am fi zăbovit atât, ne-am fi întors acum a doua oară».
 
-##### 43:11
+##### 43,11
 Zis-a Israel, tatăl lor, către ei: «Dacă este aşa, iată ce să faceţi: luaţi în sacii voştri din roadele pământului acestuia şi duceţi ca dar omului aceluia: puţin balsam şi puţină miere, tămâie şi smirnă, migdale şi fistic.
 
-##### 43:12
+##### 43,12
 Luaţi şi alt argint cu voi, iar argintul care v-a fost pus înapoi în sacii voştri întoarceţi-l cu mâinile voastre; poate că a fost pus din greşeală.
 
-##### 43:13
+##### 43,13
 Luaţi şi pe fratele vostru şi, sculându-vă, mergeţi iar la omul acela.
 
-##### 43:14
+##### 43,14
 Iar Dumnezeul cel Atotputernic să vă dea trecere la omul acela, ca să vă dea şi pe celălalt frate al vostru, şi pe Veniamin. Cât despre mine, apoi de-mi va fi dat să rămân fără copii, atunci să rămân!».
 
-##### 43:15
+##### 43,15
 Şi au luat ei darurile acestea; luat-au şi argint, de două ori mai mult, şi pe Veniamin şi, sculându-se, au plecat în Egipt şi s-au înfăţişat înaintea lui Iosif.
 
-##### 43:16
+##### 43,16
 Iar Iosif, văzând printre ei şi pe Veniamin, fratele său cel de o mamă cu el, a zis către ispravnicul casei sale: «Bagă pe oamenii aceia în casă şi junghie din vite şi găteşte, pentru că la amiază oamenii aceia au să mănânce la masă cu mine!».
 
-##### 43:17
+##### 43,17
 A făcut deci omul acela cum îi poruncise Iosif: a băgat pe oamenii aceia în casa lui Iosif.
 
-##### 43:18
+##### 43,18
 Iar oamenii aceia, văzând că i-au băgat în casa lui Iosif, au zis: «Pentru argintul, care ni s-a înapoiat deunăzi în sacii noştri, ne bagă înăuntru, ca să se lege de noi şi să ne năpăstuiască şi să ne ia robi pe noi şi asinii noştri».
 
-##### 43:19
+##### 43,19
 Atunci apropiindu-se ei de ispravnicul casei lui Iosif, au grăit cu dânsul, la uşa casei, şi au zis:
 
-##### 43:20
+##### 43,20
 «O, domnul nostru! Noi am mai venit o dată să cumpărăm bucate,
 
-##### 43:21
+##### 43,21
 Dar s-a întâmplat că, ajungând la popasul de noapte şi dezlegând sacii noştri, iată argintul fiecăruia era în sacul lui; şi acum tot argintul nostru, după greutatea lui, îl înapoiem cu mâinile noastre;
 
-##### 43:22
+##### 43,22
 Iar pentru cumpărat bucate, acum am adus alt argint, şi nu ştim cine a pus argintul în sacii noştri».
 
-##### 43:23
+##### 43,23
 Iar acela le-a zis: «Fiţi liniştiţi şi nu vă temeţi; Dumnezeul vostru şi Dumnezeul tatălui vostru v-a dat comoara în sacii voştri, căci eu am primit tot argintul cuvenit de la voi». Şi le-a adus pe Simeon.
 
-##### 43:24
+##### 43,24
 Apoi omul acela a băgat pe oamenii aceia în casa lui Iosif şi le-a dat apă de şi-au spălat picioarele; şi a dat şi nutreţ pentru asinii lor.
 
-##### 43:25
+##### 43,25
 Iar ei şi-au pregătit darurile până la amiază, când avea să vină Iosif, căci auziseră că vor prânzi acolo.
 
-##### 43:26
+##### 43,26
 După ce a venit Iosif acasă, i-au adus în casă darurile ce aveau cu ei şi i s-au închinat cu feţele până la pământ.
 
-##### 43:27
+##### 43,27
 El însă i-a întrebat: «Cum vă aflaţi?». Apoi a zis: «E sănătos bătrânul vostru tată, de care mi-aţi vorbit deunăzi? Mai trăieşte el oare?».
 
-##### 43:28
+##### 43,28
 Iar ei au zis: «Tatăl nostru, robul tău, e sănătos şi trăieşte!». Şi Iosif a zis: «Binecuvântat de Dumnezeu este omul acela!». Iar ei s-au plecat şi i s-au închinat.
 
-##### 43:29
+##### 43,29
 Şi ridicându-şi Iosif ochii şi văzând pe Veniamin, fratele său de o mamă cu el, a zis: «Acesta-i fratele vostru cel mai mic, pe care mi-ați spus că-l veţi aduce la mine?« Iar ei au răspuns: «Acesta!». Şi a zis Iosif către el: «Dumnezeu să Se milostivească spre tine, fiule!».
 
-##### 43:30
+##### 43,30
 Dar s-a depărtat Iosif repede, pentru că inima sa ardea pentru fratele său şi căuta să plângă. Şi intrând în camera sa, a plâns acolo.
 
-##### 43:31
+##### 43,31
 Apoi, spălându-şi faţa, a ieşit şi stăpânindu-se a zis: «Daţi mâncarea!».
 
-##### 43:32
+##### 43,32
 Şi i s-a dat lui deosebi şi lor iarăşi deosebi, şi Egiptenilor celor ce mâncau cu dânşii tot deosebi, căci Egiptenii nu puteau să mănânce la un loc cu Evreii, pentru că aceştia sunt spurcaţi pentru Egipteni.
 
-##### 43:33
+##### 43,33
 Şi s-au aşezat ei înaintea lui, cel întâi-născut după vârsta lui şi cel mai tânăr după vârsta lui, şi se mirau între ei oamenii aceştia.
 
-##### 43:34
+##### 43,34
 Apoi el a dat fiecăruia porţii de dinaintea lui, iar partea lui Veniamin era de cinci ori mai mare decât a celorlalţi. Şi au băut şi s-au veselit cu el.
 
 
 ## Facerea - 44 - *Spaima fraților lui Iosif*
 
-##### 44:1
+##### 44,1
 După aceea a poruncit Iosif ispravnicului casei sale şi i-a zis: «Umple sacii oamenilor acestora cu bucate, cât vor putea duce, şi argintul fiecăruia să-l pui în gura sacului lui.
 
-##### 44:2
+##### 44,2
 Iar cupa mea cea de argint să o pui în sacul celui mai mic, cu preţul grâului lui». Şi a făcut acela după cuvântul lui Iosif, cum poruncise el.
 
-##### 44:3
+##### 44,3
 Iar dimineaţa, în revărsatul zorilor, le-au dat drumul oamenilor acelora şi asinilor lor.
 
-##### 44:4
+##### 44,4
 Dar ieşind din cetate, ei nu s-au dus departe şi iată că Iosif zise ispravnicului casei sale: «Scoală şi aleargă după oamenii aceia şi, dacă-i vei ajunge, să le zici: «De ce mi-aţi răsplătit cu rău pentru bine?
 
-##### 44:5
+##### 44,5
 De ce mi-aţi furat cupa cea de argint? Au nu este aceasta cupa din care bea stăpânul meu şi în care ghiceşte? Ceea ce aţi făcut aţi făcut rău!».
 
-##### 44:6
+##### 44,6
 Şi ajungându-i, le-a zis cuvintele acestea.
 
-##### 44:7
+##### 44,7
 Iar ei au răspuns: «De ce grăieşte domnul vorbele acestea? Noi, robii tăi, n-am făcut aşa faptă.
 
-##### 44:8
+##### 44,8
 Dacă noi şi argintul ce l-am găsit în sacii noştri ţi l-am adus înapoi din ţara Canaan, cum dar să furăm din casa stăpânului tău argint sau aur?
 
-##### 44:9
+##### 44,9
 Acela dintre robii tăi, la care se va găsi cupa, să moară, iar noi să fim robii domnului nostru!».
 
-##### 44:10
+##### 44,10
 Zis-a lor acela: «Bine: cum aţi zis, aşa să fie! Acela, la care se va găsi cupa, să-mi fie rob, iar voi veţi fi nevinovaţi!».
 
-##### 44:11
+##### 44,11
 Atunci fiecare a dat repede jos sacul său şi şi-a dezlegat fiecare sacul,
 
-##### 44:12
+##### 44,12
 Iar acela a căutat, începând de la cel mai mare şi isprăvind cu cel mai mic; şi a găsit cupa în sacul lui Veniamin.
 
-##### 44:13
+##### 44,13
 Atunci ei şi-au rupt hainele şi, punându-şi fiecare sacul său pe asinul său, s-au întors în cetate.
 
-##### 44:14
+##### 44,14
 Şi a intrat Iuda şi fraţii săi la Iosif, că era încă acolo, şi au căzut la pământ înaintea lui;
 
-##### 44:15
+##### 44,15
 Iar Iosif le-a zis: «Pentru ce aţi făcut o faptă ca aceasta? Au n-aţi ştiut voi că un om ca mine va ghici tăinuirea?».
 
-##### 44:16
+##### 44,16
 Zis-a Iuda: «Ce să răspundem domnului nostru, sau ce să zicem, sau cu ce să ne dezvinovăţim? Dumnezeu a descoperit nedreptatea robilor tăi. Iată acum suntem robii domnului nostru şi noi şi acela la care s-a găsit cupa!».
 
-##### 44:17
+##### 44,17
 Iosif însă le-a zis: «Ba nu! Eu aceasta nu voi face-o. Ci rob îmi va fi acela la care s-a găsit cupa, iar voi duceţi-vă cu pace la tatăl vostru».
 
-##### 44:18
+##### 44,18
 Atunci, apropiindu-se de el, Iuda a zis: «Stăpânul meu, îngăduie robului tău să spună o vorbă înaintea ta şi să nu te mânii pe robul tău, căci tu eşti ca şi Faraon.
 
-##### 44:19
+##### 44,19
 Domnul meu a întrebat pe robii tăi şi a zis: «Aveţi voi tată sau frate?».
 
-##### 44:20
+##### 44,20
 Şi noi am spus domnului nostru: Avem tată bătrân şi un fiu mai mic, copilul bătrâneţilor sale, al cărui frate a murit şi a rămas numai el singur de la mama lui şi tatăl său îl iubeşte.
 
-##### 44:21
+##### 44,21
 Iar tu ai zis către robii tăi: Aduceţi-l pe acela la mine, ca să-l văd.
 
-##### 44:22
+##### 44,22
 Atunci noi am spus domnului nostru: Băiatul nu poate părăsi pe tatăl lui, căci, de ar părăsi el pe tatăl lui, acesta ar muri.
 
-##### 44:23
+##### 44,23
 Tu însă ai zis către robii tăi: De nu va veni cu voi fratele vostru cel mai mic, să nu vă mai arătaţi înaintea mea.
 
-##### 44:24
+##### 44,24
 Şi dacă ne-am întors noi la tatăl nostru şi al tău rob, i-am povestit lui vorbele domnului nostru;
 
-##### 44:25
+##### 44,25
 Iar când tatăl nostru ne-a zis: «Duceţi-vă iar, de mai cumpăraţi puţine bucate»,
 
-##### 44:26
+##### 44,26
 Noi atunci, i-am răspuns: «Nu ne mai putem duce; iar de va fi cu noi fratele nostru cel mai mic, ne ducem, pentru că nu putem să mai vedem faţa omului aceluia, de nu va veni cu noi şi fratele nostru cel mai mic».
 
-##### 44:27
+##### 44,27
 Atunci tatăl nostru şi al tău rob ne-a zis: «Voi ştiţi că femeia mea mi-a născut doi fii:
 
-##### 44:28
+##### 44,28
 Unul s-a dus de la mine şi eu am zis: De bună seamă a fost sfâşiat şi până acum nu l-am mai văzut.
 
-##### 44:29
+##### 44,29
 De-mi veţi lua şi pe acesta de la ochii mei şi i se va întâmpla pe cale vreun rău, veţi pogorî cărunteţile mele amărâte în mormânt».
 
-##### 44:30
+##### 44,30
 Deci, de mă voi întoarce acum la tatăl nostru şi al tău rob, şi nu va fi cu noi băiatul, de al cărui suflet este legat sufletul său, şi de va vedea el că nu este băiatul, va muri;
 
-##### 44:31
+##### 44,31
 Şi aşa robii tăi vor pogorî cărunteţile tatălui lor şi ale robului tău cu amărăciune în mormânt.
 
-##### 44:32
+##### 44,32
 Şi apoi eu, robul tău, m-am prins chezaş la tatăl meu pentru băiat şi am zis: De nu ţi-l voi aduce şi nu ţi-l voi înfăţişa, să rămân eu vinovat înaintea tatălui meu în toate zilele vieţii mele.
 
-##### 44:33
+##### 44,33
 Deci, să rămân eu, robul tău, rob la domnul meu în locul băiatului, iar băiatul să se întoarcă cu fraţii săi.
 
-##### 44:34
+##### 44,34
 Căci cum mă voi duce eu la tatăl meu, de nu va fi băiatul cu mine? Nu vreau să văd durerea ce ar ajunge pe tatăl meu!».
 
 
 ## Facerea - 45 - *Iosif se face cunoscut fraților săi*
 
-##### 45:1
+##### 45,1
 Atunci Iosif, nemaiputându-se stăpâni înaintea tuturor celor ce erau de faţă, a strigat: «Daţi afară de aici pe toţi!». Şi nemairămânând nimeni cu el, Iosif s-a descoperit fraţilor săi,
 
-##### 45:2
+##### 45,2
 Plângând tare, şi au auzit toţi Egiptenii şi s-a auzit şi în casa lui Faraon.
 
-##### 45:3
+##### 45,3
 Şi a zis Iosif către fraţii săi: «Eu sunt Iosif. Mai trăieşte oare tatăl meu?». Fraţii lui însă nu i-au putut răspunde, că erau cuprinşi de frică.
 
-##### 45:4
+##### 45,4
 Apoi Iosif a zis către fraţii săi: «Apropiaţi-vă de mine!». Şi ei s-au apropiat. Iar el a zis: «Eu sunt Iosif, fratele vostru, pe care voi l-aţi vândut în Egipt.
 
-##### 45:5
+##### 45,5
 Acum însă să nu vă întristaţi, nici să vă pară rău că m-aţi vândut aici, că Dumnezeu m-a trimis înaintea voastră pentru păstrarea vieţii voastre.
 
-##### 45:6
+##### 45,6
 Că iată, doi ani sunt de când foametea bântuie în această ţară şi mai sunt încă cinci ani, în care nu va fi nici arătură, nici seceriş.
 
-##### 45:7
+##### 45,7
 Căci Dumnezeu m-a trimis înaintea voastră, ca să păstrez o rămăşiţă în ţara voastră şi să vă gătesc mijloc de trai în ţara aceasta şi să cruţe viaţa voastră printr-o slăvită izbăvire.
 
-##### 45:8
+##### 45,8
 Deci nu voi m-aţi trimis aici, ci Dumnezeu, Care m-a făcut ca un tată lui Faraon, domn peste toată casa lui şi stăpân peste tot pământul Egiptului.
 
-##### 45:9
+##### 45,9
 Grăbiţi-vă de vă duceţi la tatăl meu şi-i spuneţi: «Aşa zice fiul tău Iosif: Dumnezeu m-a făcut stăpân peste tot Egiptul; vino dar la mine şi nu zăbovi;
 
-##### 45:10
+##### 45,10
 Vei locui în pământul Goşen şi vei fi aproape de mine, tu, feciorii tăi şi feciorii feciorilor tăi, oile tale, vitele tale şi toate câte sunt ale tale;
 
-##### 45:11
+##### 45,11
 Şi te voi hrăni acolo, că foametea va mai ţine încă cinci ani, ca să nu pieri tu, nici feciorii tăi, nici toate ale tale.
 
-##### 45:12
+##### 45,12
 Iată, ochii voştri şi ochii fratelui meu Veniamin văd că gura mea grăieşte cu voi.
 
-##### 45:13
+##### 45,13
 Spuneţi dar tatălui meu toată slava mea cea din Egipt şi câte aţi văzut şi vă grăbiţi să aduceţi pe tatăl meu aici!».
 
-##### 45:14
+##### 45,14
 Apoi, căzând el pe grumajii lui Veniamin, fratele său, a plâns, şi Veniamin a plâns şi el pe grumazul lui.
 
-##### 45:15
+##### 45,15
 După aceea a sărutat pe toţi fraţii săi şi a plâns cu ei. După aceasta i-au grăit şi fraţii lui.
 
-##### 45:16
+##### 45,16
 A mers deci vestea la casa lui Faraon, spunându-se: «Au venit fraţii lui Iosif». Şi s-a bucurat Faraon şi slujitorii lui.
 
-##### 45:17
+##### 45,17
 Şi a zis Faraon către Iosif: «Spune fraţilor tăi: Iată ce să faceţi: Încărcaţi dobitoacele voastre cu pâine şi vă duceţi în pământul Canaan;
 
-##### 45:18
+##### 45,18
 Şi luând pe tatăl vostru şi familiile voastre, veniţi la mine şi vă voi da cel mai bun loc din ţara Egiptului şi veţi mânca din belşugul pământului».
 
-##### 45:19
+##### 45,19
 Şi-ţi mai poruncesc să le zici: «Iată ce să mai faceţi: luaţi-vă căruţe din ţara Egiptului pentru copiii voştri şi pentru femeile voastre şi, luând pe tatăl vostru, veniţi.
 
-##### 45:20
+##### 45,20
 Să nu vă pară rău după locurile voastre, că vă voi da cel mai bun pământ din toată ţara Egiptului».
 
-##### 45:21
+##### 45,21
 Şi fiii lui Israel au făcut aşa. Iar Iosif le-a dat căruţe după porunca lui Faraon; datu-le-a şi merinde de drum.
 
-##### 45:22
+##### 45,22
 Apoi fiecăruia din ei i-a mai dat schimburi de haine, iar lui Veniamin i-a dat şi trei sute de arginţi, precum şi cinci rânduri de haine.
 
-##### 45:23
+##### 45,23
 De asemenea a trimis şi tatălui său, afară de acestea, zece asini încărcaţi cu cele mai bune lucruri din Egipt şi zece asine încărcate cu grâu, cu pâine şi cu merinde, ca să aibă pe cale.
 
-##### 45:24
+##### 45,24
 Aşa a dat drumul fraţilor săi şi ei au plecat; iar la plecare le-a zis: «Să nu vă sfădiţi pe cale!».
 
-##### 45:25
+##### 45,25
 Şi plecând din Egipt, ei au venit în ţara Canaan, la Iacov, tatăl lor,
 
-##### 45:26
+##### 45,26
 Şi l-au vestit, zicând: «Iosif, fiul tău, trăieşte şi el domneşte astăzi peste toată ţara Egiptului». Inima lui Iacov însă rămase rece şi nu-i credea pe ei.
 
-##### 45:27
+##### 45,27
 Iar dacă i-au spus ei toate cuvintele lui Iosif, pe care acesta le zisese lor, şi dacă a văzut căruţele, pe care le trimisese Iosif, ca să-l aducă, atunci s-a înviorat duhul lui Iacov, tatăl lor,
 
-##### 45:28
+##### 45,28
 Şi a zis Israel: «Destul! Iosif fiul meu, trăieşte încă! Voi merge să-l văd înainte de a muri!».
 
 
 ## Facerea - 46 - *Strămutarea lui Iacov și a fiilor săi în Egipt*
 
-##### 46:1
+##### 46,1
 Sculându-se deci Israel cu toate câte avea, a mers la Beer-Şeba şi a adus jertfă Dumnezeului tatălui său Isaac.
 
-##### 46:2
+##### 46,2
 Atunci a zis Dumnezeu către Israel noaptea în vis: «Iacove, Iacove!». Iar el a răspuns: «Iată-mă!».
 
-##### 46:3
+##### 46,3
 Şi Dumnezeu a zis: «Eu sunt Domnul Dumnezeul tatălui tău, nu te teme a te duce în Egipt, căci acolo am să te fac neam mare.
 
-##### 46:4
+##### 46,4
 Am să merg cu tine în Egipt Eu Însumi şi tot Eu am să te scot de acolo, iar Iosif îţi va închide ochii cu mâna sa!».
 
-##### 46:5
+##### 46,5
 După aceasta s-a ridicat Iacov de la Beer-Şeba, iar fiii lui Israel au luat pe Iacov, tatăl lor, şi pe copiii lor şi pe femeile lor în căruţele pe care le trimisese Iosif, ca să-l aducă.
 
-##### 46:6
+##### 46,6
 Luând deci Iacov averile sale şi toate vitele ce agonisise în pământul Canaan, el a mers în Egipt împreună cu tot neamul lui.
 
-##### 46:7
+##### 46,7
 Şi a adus el împreună cu sine în Egipt pe fiii şi nepoţii săi, pe fiicele, nepoatele sale şi tot neamul său.
 
-##### 46:8
+##### 46,8
 Iar numele fiilor lui Israel, care au intrat în Egipt, sunt acestea: Iacov şi fiii lui: Ruben, întâiul-născut al lui Iacov.
 
-##### 46:9
+##### 46,9
 Fiii lui Ruben: Enoh, Falu, Heţron şi Carmi.
 
-##### 46:10
+##### 46,10
 Fiii lui Simeon: Iemuel şi Iamin, Ohad şi Iachin, Ţohar şi Saul, fiii canaaneencii.
 
-##### 46:11
+##### 46,11
 Fiii lui Levi: Gherşon, Cahat şi Merari.
 
-##### 46:12
+##### 46,12
 Fiii lui Iuda: Ir, Onan, Şela, Fares şi Zara. Însă Ir şi Onan au murit în ţara Canaanului. Iar fiii lui Fares erau Hesron şi Hamul.
 
-##### 46:13
+##### 46,13
 Fiii lui Isahar erau Tola şi Fua, Iaşub şi Şimron.
 
-##### 46:14
+##### 46,14
 Fiii lui Zabulon erau: Sered, Elon şi Iahleel.
 
-##### 46:15
+##### 46,15
 Aceştia sunt feciorii şi nepoţii Liei, pe care i-a născut ea lui Iacov în Mesopotamia, ca şi pe Dina, fata lui: de toţi treizeci şi trei de suflete, băieţi şi fete.
 
-##### 46:16
+##### 46,16
 Fiii lui Gad erau: Ţifion, Haghi, Şuni, Eţbon, Eri, Arodi şi Areli.
 
-##### 46:17
+##### 46,17
 Fiii lui Aşer erau: Imna şi Işva, Işvi, Bria şi Serah, sora lor. Iar Bria a avut pe Heber şi Malkiel.
 
-##### 46:18
+##### 46,18
 Aceştia sunt feciorii şi nepoţii Zilpei, pe care Laban a dat-o Liei, fiica sa. Ea a născut lui Iacov şaisprezece suflete.
 
-##### 46:19
+##### 46,19
 Fiii Rahilei, soţia lui Iacov, erau: Iosif şi Veniamin.
 
-##### 46:20
+##### 46,20
 Lui Iosif i s-au născut în ţara Egiptului Manase şi Efraim, pe care i-a născut Asineta, fiica lui Poti-Fera, preotul cel mare din Iliopolis. Fiul lui Manase, pe care i l-a născut ţiitoarea sa Sira este Machir; iar lui Machir i s-a născut Galaad; iar fiii lui Efraim, fratele lui Manase, au fost: Sutalaam şi Taam; Sutalaam a avut de fiu pe Edom.
 
-##### 46:21
+##### 46,21
 Fiii lui Veniamin au fost: Bela, Becher şi Aşbel; fiii lui Bela au fost: Ghera şi Naaman, Ehi, Roş, Mupim, Hupim şi Ard.
 
-##### 46:22
+##### 46,22
 Aceştia sunt fiii şi nepoţii Rahilei, care i s-au născut lui Iacov: de toţi paisprezece suflete.
 
-##### 46:23
+##### 46,23
 Fiul lui Dan a fost: Huşim.
 
-##### 46:24
+##### 46,24
 Fiii lui Neftali au fost: Iahţeel, Guni, Ieţer şi Şilem.
 
-##### 46:25
+##### 46,25
 Aceştia sunt feciorii şi nepoţii Bilhăi, pe care Laban a dat-o roabă fiicei sale Rahila. Ea a născut lui Iacov de toate şapte suflete.
 
-##### 46:26
+##### 46,26
 Iar sufletele, care au intrat cu Iacov în Egipt şi care au ieşit din coapsele lui, au fost de toate şaizeci şi şase afară de femeile fiilor lui Iacov.
 
-##### 46:27
+##### 46,27
 Fiii lui Iosif, născuţi în Egipt, erau de toţi nouă suflete. Deci, de toate, sufletele casei lui Iacov, care au venit în Egipt cu el, au fost şaptezeci şi cinci.
 
-##### 46:28
+##### 46,28
 Atunci a trimis Iacov pe Iuda înaintea sa, la Iosif, ca să-l întâmpine la Ieroonpolis, în ţinutul Goşen.
 
-##### 46:29
+##### 46,29
 Iar Iosif, înhămându-şi caii la căruţa sa, a ieşit în întâmpinarea lui Israel, tatăl său, la Ieroonpolis şi, văzându-l, a căzut pe grumazul lui şi a plâns mult pe grumazul lui.
 
-##### 46:30
+##### 46,30
 Israel însă a zis către Iosif: «De acum pot să mor, că am văzut faţa ta şi că trăieşti încă».
 
-##### 46:31
+##### 46,31
 Iar Iosif a zis către fraţii săi şi către casa tatălui său: «Mă duc să vestesc pe Faraon şi să-i zic: Fraţii mei şi casa tatălui meu, care erau în pământul Canaan, au venit la mine.
 
-##### 46:32
+##### 46,32
 Aceşti oameni sunt păstori de oi, căci trăiesc din creşterea vitelor, şi au adus cu ei oile şi vitele lor şi toate câte au.
 
-##### 46:33
+##### 46,33
 Şi dacă vă va chema Faraon şi vă va zice: «Cu ce vă îndeletniciţi?».
 
-##### 46:34
+##### 46,34
 Să-i răspundeţi: «Robii tăi am fost crescători de vite din tinereţile noastre până acum, şi noi şi părinţii noştri», ca astfel să vă aşeze în pământul Goşen. Căci pentru Egipteni este spurcat tot păstorul de oi.
 
 
 ## Facerea - 47 - *Iacov înainte lui Faraon*
 
-##### 47:1
+##### 47,1
 Mergând deci Iosif a vestit pe Faraon, zicând: «Tatăl meu şi fraţii mei, cu vitele lor mărunte şi mari şi cu toate câte au, au venit din pământul Canaan şi iată sunt în ţinutul Goşen!».
 
-##### 47:2
+##### 47,2
 Luând apoi pe cinci dintre fraţii săi, i-a înfăţişat lui Faraon.
 
-##### 47:3
+##### 47,3
 Iar Faraon a zis către fraţii lui Iosif: «Cu ce vă îndeletniciţi voi?». Şi ei au răspuns lui Faraon: «Robii tăi sunt un neam de păstori de oi, din tată în fiu».
 
-##### 47:4
+##### 47,4
 Apoi au zis iarăşi către Faraon: «Am venit să locuim în pământul acesta, căci nu se găseşte păşune pentru vitele robilor tăi, pentru că în ţara Canaan e foamete mare. Îngăduie dar robilor tăi să se aşeze în ţinutul Goşen!».
 
-##### 47:5
+##### 47,5
 Iar Faraon a zis către Iosif: «Tatăl tău şi fraţii tăi au venit la tine.
 
-##### 47:6
+##### 47,6
 Iată, pământul Egiptului îţi stă înainte; aşază pe tatăl tău şi pe fraţii tăi în cel mai bun loc din ţară. Să locuiască ei în pământul Goşen; şi de cunoşti printre ei oameni pricepuţi, pune-i supraveghetori peste vitele mele!»
 
-##### 47:7
+##### 47,7
 Apoi a adus Iosif înăuntru pe Iacov, tatăl său, şi l-a înfăţişat înaintea lui Faraon şi a binecuvântat Iacov pe Faraon;
 
-##### 47:8
+##### 47,8
 Iar Faraon a zis către Iacov: «Câţi sunt anii vieţii tale?».
 
-##### 47:9
+##### 47,9
 Răspuns-a Iacov lui Faraon: «Zilele pribegiei mele sunt o sută treizeci de ani. Puţine şi grele au fost zilele vieţii mele şi n-am ajuns zilele anilor vieţii părinţilor mei, cât au pribegit ei în zilele lor».
 
-##### 47:10
+##### 47,10
 Şi iarăşi a binecuvântat Iacov pe Faraon şi a ieşit de la Faraon.
 
-##### 47:11
+##### 47,11
 Deci a aşezat Iosif pe tatăl său şi pe fraţii săi şi le-a dat moşie în ţara Egiptului, în cea mai bună parte a ţării, în pământul Ramses (*Goşen*), cum îi poruncise Faraon.
 
-##### 47:12
+##### 47,12
 Şi dădea Iosif tatălui său şi fraţilor săi şi la toată casa tatălui său pâine după trebuinţa familiei fiecăruia.
 
-##### 47:13
+##### 47,13
 În vremea aceea nu era pâine în tot pământul, pentru că se înteţise foametea foarte tare, încât ţara Egiptului şi pământul Canaan se istoviseră de foamete.
 
-##### 47:14
+##### 47,14
 Şi a adunat Iosif tot argintul, ce era în ţara Egiptului şi în ţara Canaanului, pe grâul ce se cumpăra; de la el. Şi a adus Iosif argintul tot în casa lui Faraon.
 
-##### 47:15
+##### 47,15
 Când s-a sfârşit tot argintul în ţara Egiptului şi în ţara Canaanului, au venit atunci toţi Egiptenii la Iosif şi au zis: «Dă-ne pâine! De ce să murim sub ochii tăi? Că s-a sfârşit argintul».
 
-##### 47:16
+##### 47,16
 Iar Iosif le-a zis: «Aduceţi vitele voastre şi vă voi da pâine pe vitele voastre, dacă vi s-a terminat argintul».
 
-##### 47:17
+##### 47,17
 Şi au adus ei la Iosif vitele lor şi le-a dat Iosif pâine pe cai şi pe oi, pe boi şi pe asini; şi anul acela i-a hrănit cu pâine pentru toate vitele lor.
 
-##### 47:18
+##### 47,18
 Iar dacă a trecut anul acela, au venit în anul următor şi i-au zis: «Nu vom ascunde de domnul nostru, că argintul nostru s-a sfârşit şi vitele noastre sunt la domnul nostru şi nimic nu ne-a mai rămas să-i dăm decât trupurile şi pământurile noastre.
 
-##### 47:19
+##### 47,19
 De ce să pierim sub ochii tăi şi noi şi pământurile noastre? Cumpără-ne pe pâine, pe noi cu pământurile noastre, şi vom fi robi lui Faraon, noi şi pământurile noastre, iar tu să ne dai sămânţă ca să trăim şi să nu murim şi ca ogoarele să nu rămână paragină».
 
-##### 47:20
+##### 47,20
 Şi a cumpărat Iosif pentru Faraon tot pământul Egiptului, pentru că Egiptenii şi-au vândut fiecare pământul său lui Faraon, că-i istovise foametea; şi a ajuns tot pământul al lui Faraon.
 
-##### 47:21
+##### 47,21
 De asemenea şi pe popor l-a făcut rob lui, de la un capăt al Egiptului până la celălalt.
 
-##### 47:22
+##### 47,22
 Numai pământurile preoţilor nu le-a cumpărat Iosif, căci preoţilor le era rânduită de la Faraon porţie şi se hrăneau din porţia lor, pe care le-o da Faraon; de aceea nu şi-au vândut ei pământul.
 
-##### 47:23
+##### 47,23
 Atunci a zis Iosif către popor: «Iată, eu v-am cumpărat astăzi pentru Faraon şi pe voi şi pământul vostru. Luaţi-vă sămânţă şi semănaţi pământul.
 
-##### 47:24
+##### 47,24
 Şi la seceriş să daţi a cincea parte lui Faraon, iar patru părţi să vă rămână vouă pentru semănatul ogoarelor, pentru hrana voastră şi a celor ce sunt în casele voastre şi pentru hrana copiilor voştri».
 
-##### 47:25
+##### 47,25
 Iar ei au zis: «Tu ne-ai salvat viaţa! Să aflăm milă în ochii domnului nostru şi să fim robi lui Faraon!».
 
-##### 47:26
+##### 47,26
 Şi le-a pus Iosif lege, care-i până astăzi în ţara Egiptului, ca a cincea parte să se dea lui Faraon, scutit fiind numai pământul preoţilor, care nu era al lui Faraon.
 
-##### 47:27
+##### 47,27
 Astfel s-a aşezat Israel în ţara Egiptului, în ţinutul Goşen, şi l-a moştenit şi a crescut şi s-a înmulţit foarte tare.
 
-##### 47:28
+##### 47,28
 Iacov a mai trăit în ţara Egiptului şaptesprezece ani. Zilele vieţii lui Iacov au fost deci o sută patruzeci şi şapte de ani.
 
-##### 47:29
+##### 47,29
 Apoi venindu-i lui vremea să moară, Israel a chemat pe fiul său Iosif, şi i-a zis: «De am aflat har în ochii tăi, pune-ţi mâna pe coapsa mea şi jură că vei face milă şi dreptate cu mine, să nu mă îngropi în Egipt!
 
-##### 47:30
+##### 47,30
 Când voi adormi ca părinţii mei, mă vei scoate din Egipt şi mă vei îngropa în mormântul lor». Iar Iosif a zis: «Voi face după cuvântul tău!».
 
-##### 47:31
+##### 47,31
 Iacov însă a zis: «Jură-mi!». Şi i s-a jurat Iosif. Atunci Israel s-a închinat la vârful toiagului său.
 
 
 ## Facerea - 48 - *Iacov binecuvintează pe fiii lui Iosif*
 
-##### 48:1
+##### 48,1
 După aceea i s-a spus lui Iosif: «Tatăl tău e bolnav». Atunci a luat el cu sine pe cei doi fii ai săi, pe Manase şi pe Efraim, şi a venit la Iacov.
 
-##### 48:2
+##### 48,2
 Şi i s-a dat de veste lui Iacov, spunându-i-se: «Iată Iosif, fiul tău, vine să te vadă». Şi Israel, adunându-şi puterile sale, s-a ridicat în pat.
 
-##### 48:3
+##### 48,3
 Şi a zis Iacov către Iosif: «Dumnezeu Atotputernicul mi S-a arătat în Luz, în pământul Canaan şi m-a binecuvântat.
 
-##### 48:4
+##### 48,4
 Şi mi-a zis: «Iată, te voi creşte şi te voi înmulţi, şi voi ridica din tine mulţime de popoare, şi pământul acesta îl voi da urmaşilor tăi, ca moştenire veşnică».
 
-##### 48:5
+##### 48,5
 Acum deci cei doi fii ai tăi, care ţi s-au născut în pământul Egiptului, înainte de a veni eu la tine în Egipt, să fie ai mei; Efraim şi Manase să fie ai mei, ca Ruben şi Simeon.
 
-##### 48:6
+##### 48,6
 Iar copiii, ce se vor naşte de acum din tine, să fie ai tăi şi se vor numi ei cu numele fraţilor lor, în triburile acelora.
 
-##### 48:7
+##### 48,7
 Când veneam eu din Mesopotamia, mi-a murit Rahila, mama ta, pe drum, în pământul Canaan, puţin înainte de a ajunge la Efrata, şi am îngropat-o acolo, lângă drumul spre Efrata sau Betleem».
 
-##### 48:8
+##### 48,8
 Văzând apoi pe fiii lui Iosif, Israel a zis: «Cine sunt aceştia?».
 
-##### 48:9
+##### 48,9
 Răspuns-a Iosif tatălui său: «Aceştia sunt fiii mei, pe care mi i-a dat Dumnezeu aici!». Iar Iacov a zis: «Apropie-i de mine ca să-i binecuvântez!».
 
-##### 48:10
+##### 48,10
 Ochii lui Israel însă erau întunecaţi de bătrâneţe şi nu mai puteau să vadă. Şi a apropiat Iosif pe fiii săi de el, iar el i-a îmbrăţişat şi i-a sărutat.
 
-##### 48:11
+##### 48,11
 Apoi a zis iarăşi Israel către Iosif: «Nu nădăjduiam să mai văd faţa ta şi iată Dumnezeu mi-a arătat şi pe urmaşii tăi».
 
-##### 48:12
+##### 48,12
 Şi depărtându-i de genunchii tatălui său, Iosif i s-a închinat lui Israel până la pământ.
 
-##### 48:13
+##### 48,13
 După aceea luând Iosif pe cei doi fii ai săi, pe Efraim cu dreapta sa în faţa stângei lui Israel, iar pe Manase cu stânga sa în fața dreptei lui Israel, i-a apropiat de el.
 
-##### 48:14
+##### 48,14
 Israel însă şi-a întins mâna sa cea dreaptă şi a pus-o pe capul lui Efraim, deşi acesta era mai mic, iar stânga şi-a pus-o pe capul lui Manase. Înadins şi-a încrucişat mâinile, deşi Manase era întâiul născut.
 
-##### 48:15
+##### 48,15
 Şi i-a binecuvântat, zicând: «Dumnezeul, înaintea Căruia au umblat părinţii mei: Avraam şi Isaac, Dumnezeul Cel ce m-a călăuzit de când sunt şi până în ziua aceasta;
 
-##### 48:16
+##### 48,16
 Îngerul ce m-a izbăvit pe mine de tot răul să binecuvânteze pruncii aceştia, să poarte ei numele meu şi numele părinţilor mei: Avraam şi Isaac, şi să crească din ei mulţime mare pe pământ!».
 
-##### 48:17
+##### 48,17
 Şi Iosif, văzând că tatăl său şi-a pus mâna sa cea dreaptă pe capul lui Efraim, i-a părut rău şi, luând mâna tatălui său ca să o mute de pe capul lui Efraim pe capul lui Manase,
 
-##### 48:18
+##### 48,18
 A zis către tatăl său: «Nu aşa, tată, că cestălalt este întâiul născut. Pune dar pe capul lui mâna ta cea dreaptă!».
 
-##### 48:19
+##### 48,19
 Tatăl său însă n-a voit, ci a zis: «Ştiu, fiul meu, ştiu! Şi din el va ieşi un popor şi el va fi mare; dar fratele lui cel mai mic va fi mai mare decât el şi din sămânţa lui vor ieşi popoare nenumărate».
 
-##### 48:20
+##### 48,20
 Şi i-a binecuvântat pe ei în ziua aceea, zicând: «Cu voi se va binecuvânta în Israel şi se va zice: Dumnezeu să te facă aşa ca pe Efraim şi ca pe Manase!». Şi aşa a pus mâna pe Efraim înaintea lui Manase.
 
-##### 48:21
+##### 48,21
 Apoi a zis Israel către Iosif: «Iată, eu mor; dar Dumnezeu va fi cu voi şi vă va întoarce în ţara părinţilor voştri.
 
-##### 48:22
+##### 48,22
 Deci eu îţi dau ţie, peste ceea ce au fraţii tăi, Sichemul, pe care l-am luat eu cu sabia mea şi cu arcul meu din mâinile Amoreilor».
 
 
 ## Facerea - 49 - *Prorocia și moartea lui Iacov*
 
-##### 49:1
+##### 49,1
 Apoi a chemat Iacov pe fiii săi şi le-a zis: «Adunaţi-vă, ca să vă spun ce are să fie cu voi în zilele cele de apoi.
 
-##### 49:2
+##### 49,2
 Adunaţi-vă şi ascultaţi-mă, fiii lui Iacov, ascultaţi pe Israel, ascultaţi pe tatăl vostru!
 
-##### 49:3
+##### 49,3
 Ruben, întâi-născutul meu, tăria mea şi începătura puterii mele, culmea vredniciei şi culmea destoiniciei;
 
-##### 49:4
+##### 49,4
 Tu ai clocotit ca apa şi nu vei avea întâietatea, pentru că te-ai suit în patul tatălui tău şi mi-ai pângărit aşternutul pe care te-ai suit.
 
-##### 49:5
+##### 49,5
 Fraţii Simeon şi Levi... Unelte ale cruzimii sunt săbiile lor.
 
-##### 49:6
+##### 49,6
 În sfatul lor să nu intre sufletul meu şi în adunarea lor să nu fie părtaşă slava mea, căci ei, în mânia lor, au ucis oameni şi, la supărarea lor, au ologit tauri!
 
-##### 49:7
+##### 49,7
 Blestemată să fie mânia lor, căci ea a fost silnică, şi aprinderea lor, căci a fost crudă; îi voi împărţi pe ei în Iacov şi îi voi risipi în Israel.
 
-##### 49:8
+##### 49,8
 Iudo, pe tine te vor lăuda fraţii tăi. Mâinile tale să fie în ceafa vrăjmaşilor tăi. Închina-se-vor ţie feciorii tatălui tău.
 
-##### 49:9
+##### 49,9
 Pui de leu eşti, Iudo, fiul meu! De la jaf te-ai întors... El a îndoit genunchii şi s-a culcat ca un leu, ca o leoaică... Cine-l va deştepta?
 
-##### 49:10
+##### 49,10
 Nu va lipsi sceptru din Iuda, nici toiag de cârmuitor din coapsele sale, până ce va veni Împăciuitorul, Căruia se vor supune popoarele.
 
-##### 49:11
+##### 49,11
 Acela îşi va lega de viţă asinul Său, de coardă mânzul asinei Sale. Spăla-va în vin haina Sa şi în sânge de strugure veşmântul Său!
 
-##### 49:12
+##### 49,12
 Ochii Lui vor scânteia ca vinul şi dinţii Săi vor fi albi ca laptele.
 
-##### 49:13
+##### 49,13
 Zabulon va locui lângă mare, va da liman corăbiilor şi marginea hotarului lui va fi până la Sidon.
 
-##### 49:14
+##### 49,14
 Isahar este ca asinul voinic, care odihneşte între staule.
 
-##### 49:15
+##### 49,15
 Văzând că odihna e bună şi ţinutul său gras, îşi pleacă umerii sub povară şi se face bărbat plătitor de bir.
 
-##### 49:16
+##### 49,16
 Dan va judeca pe poporul său, ca pe una din seminţiile lui Israel.
 
-##### 49:17
+##### 49,17
 Dan va fi şarpe la drum, viperă la potecă, înveninând piciorul calului, ca să cadă călăreţul.
 
-##### 49:18
+##### 49,18
 În ajutorul Tău nădăjduiesc, o, Doamne!
 
-##### 49:19
+##### 49,19
 Gad, strâmtorat va fi de cete înarmate, dar le va strâmtora şi el pas cu pas.
 
-##### 49:20
+##### 49,20
 Din Aşer va veni pâinea cea grasă şi regilor le va da mâncăruri alese.
 
-##### 49:21
+##### 49,21
 Neftali, cerboaică slobodă: el rosteşte graiuri minunate.
 
-##### 49:22
+##### 49,22
 Iosif, ramură de pom roditor, ramură de pom roditor lângă izvor, ramurile lui se revarsă peste ziduri.
 
-##### 49:23
+##### 49,23
 Îl vor amărî şi îl vor duşmăni; înspre el arunca-vor săgeţi şi îl vor sili la luptă.
 
-##### 49:24
+##### 49,24
 Dar arcul lui va rămâne tare şi muşchii braţului lui întăriţi, mulţumită Dumnezeului celui puternic al lui Iacov, Cel ce este păstorul şi tăria lui Israel.
 
-##### 49:25
+##### 49,25
 De la Dumnezeul tatălui tău – El te va ajuta; şi de la cel Atotputernic – El te va binecuvânta; de la El să vină binecuvântările, de sus din ceruri, şi binecuvântările adâncului de jos, binecuvântările sânilor şi ale pântecelui.
 
-##### 49:26
+##### 49,26
 Binecuvântările tatălui tău întrec binecuvântările munţilor celor din veac şi frumuseţea dealurilor celor veşnice. Aceste binecuvântări să fie pe capul lui Iosif, pe creştetul celui mai ales între fraţii lui.
 
-##### 49:27
+##### 49,27
 Veniamin, lup răpitor, dimineaţa va mânca vânat şi pradă va împărţi seara».
 
-##### 49:28
+##### 49,28
 Iată toate cele douăsprezece seminţii ale lui Israel şi iată ce le-a spus tatăl lor, când le-a binecuvântat şi a dat fiecăreia binecuvântarea cuvenită.
 
-##### 49:29
+##### 49,29
 Apoi le-a poruncit: «Eu am să trec la poporul meu. Să mă îngropaţi lângă părinţii mei, în peştera din ţarina lui Efron Heteul.
 
-##### 49:30
+##### 49,30
 În peştera din ţarina Macpela, în faţa lui Mamvri, în pământul Canaan, pe care a cumpărat-o Avraam de la Efron Heteul, împreună cu ţarina, ca moşie de înmormântare.
 
-##### 49:31
+##### 49,31
 Acolo au fost îngropaţi Avraam şi Sarra, femeia sa, acolo au fost îngropaţi Isaac şi Rebeca, femeia lui, şi tot acolo am îngropat şi eu pe Lia.
 
-##### 49:32
+##### 49,32
 Această ţarină şi peştera din ea au fost cumpărate de la feciorii Heteilor».
 
-##### 49:33
+##### 49,33
 Sfârşind Iacov poruncile sale, pe care le-a dat feciorilor săi, şi întinzându-şi picioarele sale în pat, şi-a dat sfârşitul şi s-a adăugat la poporul său.
 
 
 ## Facerea - 50 - *Înmormântarea lui Iacov. Moartea lui Iosif*
 
-##### 50:1
+##### 50,1
 Atunci Iosif, căzând pe faţa tatălui său, l-a plâns şi l-a sărutat.
 
-##### 50:2
+##### 50,2
 Apoi a poruncit Iosif doctorilor, slujitori ai săi, să îmbălsămeze pe tatăl său şi doctorii au îmbălsămat pe Israel.
 
-##### 50:3
+##### 50,3
 După ce s-au împlinit patruzeci de zile, că atâtea zile trebuie pentru îmbălsămare, l-au plâns Egiptenii şaptezeci de zile.
 
-##### 50:4
+##### 50,4
 Iar dacă au trecut zilele plângerii lui, a zis Iosif curtenilor lui Faraon: «De am aflat bunăvoinţă în ochii voştri, ziceţi lui Faraon aşa:
 
-##### 50:5
+##### 50,5
 Tatăl meu m-a jurat şi a zis: Iată, eu am să mor; tu însă să mă îngropi în mormântul meu, pe care mi l-am săpat eu în pământul Canaan. Şi acum aş vrea să mă duc ca să îngrop pe tatăl meu şi să mă întorc». Și i s-au spus lui Faraon cuvintele lui Iosif,
 
-##### 50:6
+##### 50,6
 Iar Faraon a răspuns: «Du-te şi îngroapă pe tatăl tău, cum te-a jurat el!».
 
-##### 50:7
+##### 50,7
 Deci, s-a dus Iosif să îngroape pe tatăl său şi au mers împreună cu el toţi slujitorii lui Faraon, bătrânii casei lui şi toţi bătrânii din ţara Egiptului
 
-##### 50:8
+##### 50,8
 Şi toată casa lui Iosif şi fraţii lui şi toată casa tatălui său şi neamul lui. Numai copiii lor şi oile şi vitele lor le-au lăsat în ţara Goşen.
 
-##### 50:9
+##### 50,9
 Au plecat de asemenea cu el căruţe şi călăreţi şi s-a făcut tabăra mare foarte.
 
-##### 50:10
+##### 50,10
 Şi ajungând ei la aria lui Atad de lângă Iordan, au plâns acolo plângere mare şi tare foarte şi a jelit Iosif pe tatăl său şapte zile.
 
-##### 50:11
+##### 50,11
 Văzând Canaaneii, locuitorii ţinutului aceluia, plângerea de la aria Atad, au zis: «Mare e plângerea aceasta la Egipteni». De aceea s-a dat locului aceluia numele Abel-Miţraim, adică plângerea Egiptenilor, care loc e dincolo de Iordan.
 
-##### 50:12
+##### 50,12
 Aşa au făcut fiii lui Iacov cu Iacov, cum le poruncise el:
 
-##### 50:13
+##### 50,13
 L-au dus fiii lui în pământul Canaan şi l-au îngropat în peştera din ţarina Macpela, cea de lângă Mamvri, pe care o cumpărase Avraam cu ţarină cu tot de la Efron Heteul, ca moşie de îngropare.
 
-##### 50:14
+##### 50,14
 Apoi Iosif, după îngroparea tatălui său, s-a întors în Egipt, şi el, şi fraţii lui, şi toţi cei ce merseseră cu el la îngroparea tatălui său.
 
-##### 50:15
+##### 50,15
 Văzând însă fraţii lui Iosif că a murit tatăl lor, au zis ei: «Ce vom face, dacă Iosif ne va urî şi va vrea să se răzbune pentru răul ce i-am făcut?».
 
-##### 50:16
+##### 50,16
 Atunci au trimis ei la Iosif să i se spună: «Tatăl tău înainte de moarte te-a jurat şi a zis:
 
-##### 50:17
+##### 50,17
 «Aşa să spuneţi lui Iosif: Iartă fraţilor tăi greşeala şi păcatul lor şi răul ce ţi-au făcut. Iartă deci vina robilor Dumnezeului tatălui tău!». Şi a plâns Iosif când i s-au spus acestea.
 
-##### 50:18
+##### 50,18
 Apoi au venit şi fraţii lui şi, căzând înaintea lui, au zis: «Iată, noi suntem robii tăi».
 
-##### 50:19
+##### 50,19
 Iar Iosif le-a zis: «Nu vă temeţi! Sunt eu, oare, în locul lui Dumnezeu?
 
-##### 50:20
+##### 50,20
 Iată, voi aţi uneltit asupra mea rele, dar Dumnezeu le-a întors în bine, ca să facă cele ce sunt acum şi să păstreze viaţa unui popor numeros.
 
-##### 50:21
+##### 50,21
 Deci nu vă mai temeţi! Eu vă voi hrăni pe voi şi pe copiii voştri». Şi i-a mângâiat şi le-a vorbit de la inimă.
 
-##### 50:22
+##### 50,22
 Apoi a locuit Iosif în Egipt, el şi fraţii lui şi toată casa tatălui său. Şi a trăit Iosif o sută zece ani.
 
-##### 50:23
+##### 50,23
 Şi a văzut Iosif pe urmaşii lui Efraim până la al treilea neam. De asemenea şi copiii lui Machir, fiul lui Manase, s-au născut pe genunchii lui Iosif.
 
-##### 50:24
+##### 50,24
 În cele din urmă a zis Iosif către fraţii săi: «Iată, am să mor. Dar Dumnezeu vă va cerceta, vă va scoate din pământul acesta şi vă va duce în pământul pentru care Dumnezeul părinţilor noştri S-a jurat lui Avraam şi lui Isaac şi lui Iacov».
 
-##### 50:25
+##### 50,25
 La urmă a jurat Iosif pe fiii lui Israel, zicând: «Dumnezeu are să vă cerceteze, dar voi să scoateţi oasele mele de aici!».
 
-##### 50:26
+##### 50,26
 Şi a murit Iosif de o sută zece ani. L-au îmbălsămat şi l-au pus într-un sicriu, în pământul Egiptului.
 

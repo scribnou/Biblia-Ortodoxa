@@ -2,192 +2,192 @@
 
 ## II Petru - 1 - *Scara virtuților creștine. Petru, cel ce a văzut Schimbarea la Față, își vestește sfârșitul. Cuvântul prorocesc*
 
-##### 1:1
+##### 1,1
 Simon Petru, slujitor şi apostol al lui Iisus Hristos, celor ce prin dreptatea Dumnezeului nostru şi a Mântuitorului Iisus Hristos au dobândit o credinţă de acelaşi preţ cu a noastră:
 
-##### 1:2
+##### 1,2
 Har vouă şi pacea să se înmulţească, întru cunoştinţa lui Dumnezeu şi a lui Iisus, Domnul nostru.
 
-##### 1:3
+##### 1,3
 Dumnezeiasca Lui putere ne-a dăruit toate cele ce sunt spre viaţă şi spre bună cucernicie, făcându-ne să cunoaştem pe Cel ce ne-a chemat prin slava Sa şi prin puterea Sa,
 
-##### 1:4
+##### 1,4
 Prin care El ne-a hărăzit mari şi preţioase făgăduinţe, ca prin ele să vă faceţi părtaşi dumnezeieştii firi, scăpând de stricăciunea poftei celei din lume.
 
-##### 1:5
+##### 1,5
 Pentru aceasta, puneţi şi din partea voastră toată sârguinţa şi adăugaţi la credinţa voastră fapta bună, iar la fapta bună, cunoştinţa;
 
-##### 1:6
+##### 1,6
 La cunoştinţă, înfrânarea; la înfrânare, răbdarea; la răbdare, evlavia;
 
-##### 1:7
+##### 1,7
 La evlavie, iubirea frăţească, iar la iubirea frăţească, dragostea.
 
-##### 1:8
+##### 1,8
 Căci dacă aceste lucruri sunt în voi şi tot sporesc, ele nu vă vor lăsa nici trândavi, nici fără roade în cunoaşterea Domnului nostru Iisus Hristos.
 
-##### 1:9
+##### 1,9
 Iar cel ce nu are acestea este slab văzător şi orb şi a uitat de curăţirea păcatelor lui de demult.
 
-##### 1:10
+##### 1,10
 Pentru aceea, fraţilor, siliţi-vă cu atât mai vârtos să faceţi temeinică chemarea şi alegerea voastră, căci, făcând acestea, nu veţi greşi niciodată.
 
-##### 1:11
+##### 1,11
 Că aşa vi se va da cu bogăţie intrarea în veşnica Împărăţie a Domnului nostru şi Mântuitorului Iisus Hristos.
 
-##### 1:12
+##### 1,12
 Drept aceea, vă voi aminti pururea de acestea, cu toate că le ştiţi şi sunteţi întăriţi întru adevărul în care staţi.
 
-##### 1:13
+##### 1,13
 Socotesc, dar, că este drept, câtă vreme sunt în acest cort, să vă ţin treji, prin aducerea aminte,
 
-##### 1:14
+##### 1,14
 Fiindcă ştiu că degrabă voi lepăda cortul acesta, precum mi-a arătat Domnul nostru Iisus Hristos.
 
-##### 1:15
+##### 1,15
 Dar mă voi sili ca, şi după plecarea mea, să vă amintiţi necontenit de acestea,
 
-##### 1:16
+##### 1,16
 Pentru că noi v-am adus la cunoştinţă puterea Domnului nostru Iisus Hristos şi venirea Lui, nu luându-ne după basme meşteşugite, ci fiindcă am văzut slava Lui cu ochii noştri.
 
-##### 1:17
+##### 1,17
 Căci El a primit de la Dumnezeu-Tatăl cinste şi slavă atunci când, din înălţimea slavei, un glas ca acesta a venit către El: «Acesta este Fiul Meu cel iubit, întru Care am binevoit».
 
-##### 1:18
+##### 1,18
 Şi acest glas noi l-am auzit, pogorându-se din cer, pe când eram cu Domnul în muntele cel sfânt.
 
-##### 1:19
+##### 1,19
 Şi avem cuvântul prorocesc mai întărit, la care bine faceţi luând aminte, ca la o făclie ce străluceşte în loc întunecos, până când va străluci ziua şi Luceafărul va răsări în inimile voastre,
 
-##### 1:20
+##### 1,20
 Aceasta ştiind mai dinainte că nicio prorocie a Scripturii nu se tâlcuieşte după socotinţa fiecăruia;
 
-##### 1:21
+##### 1,21
 Pentru că niciodată prorocia nu s-a făcut din voia omului, ci oamenii cei sfinţi ai lui Dumnezeu au grăit, purtaţi fiind de Duhul Sfânt.
 
 
 ## II Petru - 2 - *Venirea învățătorilor mincinoși. Pilde de pedepse ce așteaptă pe desfrânați și pe amăgitori. Păcatul celor ce se leapădă de credință*
 
-##### 2:1
+##### 2,1
 Dar au fost în popor şi proroci mincinoşi, după cum şi între voi vor fi învăţători mincinoşi, care vor strecura eresuri pierzătoare şi, tăgăduind chiar pe Stăpânul Care i-a răscumpărat, îşi vor aduce lor grabnică pieire;
 
-##### 2:2
+##### 2,2
 Şi mulţi se vor lua după învăţăturile lor rătăcite şi, din pricina lor, calea adevărului va fi hulită;
 
-##### 2:3
+##### 2,3
 Şi din poftă de avere şi cu cuvinte amăgitoare, ei vă vor momi pe voi. Dar osânda lor, de mult pregătită, nu zăboveşte şi pierzarea lor nu dormitează.
 
-##### 2:4
+##### 2,4
 Căci dacă Dumnezeu n-a cruţat pe îngerii care au păcătuit, ci, legându-i cu legăturile întunericului în iad, i-a dat să fie păziţi spre judecată,
 
-##### 2:5
+##### 2,5
 Şi n-a cruţat lumea veche, ci a păstrat numai pe Noe, ca al optulea propovăduitor al dreptăţii, când a adus potopul peste cei fără de credinţă,
 
-##### 2:6
+##### 2,6
 Şi cetăţile Sodomei şi Gomorei, osândindu-le la nimicire, le-a prefăcut în cenuşă, dându-le ca o pildă nelegiuiţilor din viitor;
 
-##### 2:7
+##### 2,7
 Iar pe dreptul Lot, chinuit de petrecerea în desfrânare a celor nelegiuiţi, l-a izbăvit,
 
-##### 2:8
+##### 2,8
 Pentru că dreptul acesta, locuind între ei, prin ce vedea şi auzea, zi de zi, chinuia sufletul său cel drept, din pricina faptelor lor nelegiuite.
 
-##### 2:9
+##### 2,9
 Domnul poate să scape din ispite pe cei credincioşi, iar pe cei nedrepţi să-i păstreze, ca să fie pedepsiţi în ziua judecăţii,
 
-##### 2:10
+##### 2,10
 Şi mai vârtos pe cei ce umblă după îmboldirile cărnii, în pofte spurcate şi dispreţuiesc domnia cerească. Îndrăzneţi, îngâmfaţi, ei nu se cutremură să hulească măririle (*din cer*),
 
-##### 2:11
+##### 2,11
 Pe când îngerii, deşi sunt mai mari în tărie şi în putere, nu aduc în faţa Domnului judecată defăimătoare împotriva lor.
 
-##### 2:12
+##### 2,12
 Aceştia însă, ca nişte dobitoace fără minte, din fire făcute să fie prinse şi nimicite, hulind cele ce nu cunosc vor pieri în stricăciunea lor;
 
-##### 2:13
+##### 2,13
 Ei înşişi fiind nedrepţi îşi vor lua plata nedreptăţii, socotind o plăcere desfătarea de fiecare zi; ei sunt pete şi ocară, făcându-şi plăcere, în rătăcirile lor, să ospăteze cu voi la mesele voastre;
 
-##### 2:14
+##### 2,14
 Având ochii plini de pofta desfrânării şi fiind nesăţioşi de păcat, ei amăgesc sufletele cele nestatornice; inima lor e deprinsă la lăcomie şi sunt fiii blestemului.
 
-##### 2:15
+##### 2,15
 Părăsind calea cea dreaptă, au rătăcit şi au apucat calea lui Valaam, fiul lui Bosor, care a iubit plata nedreptăţii,
 
-##### 2:16
+##### 2,16
 Dar a primit mustrare pentru călcarea lui de lege; căci dobitocul fără grai, pe care era călare, grăind cu glas omenesc, a oprit nebunia prorocului.
 
-##### 2:17
+##### 2,17
 Aceştia sunt izvoare fără de apă şi nori purtaţi fără de furtună, cărora li se păstrează, în veac, întunericul cel de nepătruns,
 
-##### 2:18
+##### 2,18
 Căci rostind vorbe trufaşe şi deşarte, ei momesc întru poftele trupului, cu desfrânări, pe cei care de abia au scăpat de cei ce vieţuiesc în rătăcire.
 
-##### 2:19
+##### 2,19
 Ei le făgăduiesc libertate, fiind ei înşişi robii stricăciunii, fiindcă ceea ce te biruieşte, aceea te şi stăpâneşte.
 
-##### 2:20
+##### 2,20
 Căci dacă, după ce au scăpat de întinăciunile lumii, prin cunoaşterea Domnului şi Mântuitorului nostru Iisus Hristos, iarăşi se încurcă în acestea, ei sunt învinşi; li s-au făcut cele de pe urmă mai rele decât cele dintâi.
 
-##### 2:21
+##### 2,21
 Căci mai bine era pentru ei să nu fi cunoscut calea dreptăţii, decât, după ce au cunoscut-o, să se întoarcă de la porunca sfântă, dată lor.
 
-##### 2:22
+##### 2,22
 Cu ei s-a întâmplat adevărul din zicală: Câinele se întoarce la vărsătura lui şi porcul scăldat la noroiul mocirlei lui.
 
 
 ## II Petru - 3 - *Arderea lumii și înnoirea ei. Venirea pe neașteptate a lui Hristos. Cerurile cele noi. Greutatea înțelegerii unor lucruri din epistolele apostolului Pavel*
 
-##### 3:1
+##### 3,1
 Iubiţilor, aceasta este acum a doua epistolă pe care v-o scriu. În ele caut să trezesc, în amintirea voastră, dreapta voastră judecată,
 
-##### 3:2
+##### 3,2
 Ca să vă aduceţi aminte de cuvintele cele mai înainte grăite de sfinţii prooroci şi de porunca Domnului şi Mântuitorului, dată prin apostolii voştri.
 
-##### 3:3
+##### 3,3
 Întâi, trebuie să ştiţi că, în zilele cele de apoi, vor veni, cu batjocură, batjocoritori care vor umbla după poftele lor,
 
-##### 3:4
+##### 3,4
 Şi vor zice: Unde este făgăduinţa venirii Lui? Că de când au adormit părinţii, toate aşa rămân, ca de la începutul făpturii.
 
-##### 3:5
+##### 3,5
 Căci ei în chip voit uită aceasta, că cerurile erau de demult şi că pământul s-a închegat, la cuvântul Domnului, din apă şi prin apă,
 
-##### 3:6
+##### 3,6
 Şi prin apă lumea de atunci a pierit înecată,
 
-##### 3:7
+##### 3,7
 Iar cerurile de acum şi pământul sunt ţinute prin acelaşi cuvânt şi păstrate pentru focul din ziua judecăţii şi a pieirii oamenilor necredincioşi.
 
-##### 3:8
+##### 3,8
 Şi aceasta una să nu vă rămână ascunsă, iubiţilor, că o singură zi, înaintea Domnului, este ca o mie de ani şi o mie de ani ca o zi.
 
-##### 3:9
+##### 3,9
 Domnul nu întârzie cu făgăduinţa Sa, după cum socotesc unii că e întârziere, ci îndelung rabdă pentru voi, nevrând să piară cineva, ci toţi să vină la pocăinţă.
 
-##### 3:10
+##### 3,10
 Iar ziua Domnului va veni ca un fur, când cerurile vor pieri cu vuiet mare, stihiile, arzând, se vor desface, şi pământul şi lucrurile de pe el se vor mistui.
 
-##### 3:11
+##### 3,11
 Deci dacă toate acestea se vor desfiinţa, cât de mult vi se cuvine vouă să umblaţi întru viaţă sfântă şi în cucernicie,
 
-##### 3:12
+##### 3,12
 Aşteptând şi grăbind venirea zilei Domnului, din pricina căreia cerurile, luând foc, se vor nimici, iar stihiile, aprinse, se vor topi!
 
-##### 3:13
+##### 3,13
 Dar noi aşteptăm, potrivit făgăduinţelor Lui, ceruri noi şi pământ nou, în care locuieşte dreptatea.
 
-##### 3:14
+##### 3,14
 Pentru aceea, iubiţilor, aşteptând acestea, sârguiţi-vă să fiţi aflaţi de El în pace, fără prihană şi fără vină.
 
-##### 3:15
+##### 3,15
 Şi îndelunga-răbdare a Domnului nostru socotiţi-o drept mântuire, precum v-a scris şi iubitul nostru frate Pavel după înţelepciunea dată lui,
 
-##### 3:16
+##### 3,16
 Cum vorbeşte despre acestea, în toate epistolele sale, în care sunt unele lucruri cu anevoie de înţeles, pe care cei neştiutori şi neîntăriţi le răstălmăcesc, ca şi pe celelalte Scripturi, spre a lor pierzare.
 
-##### 3:17
+##### 3,17
 Deci voi, iubiţilor, cunoscând acestea de mai înainte, păziţi-vă, ca nu cumva, lăsându-vă târâţi de rătăcirea celor fără de lege, să cădeţi din întărirea voastră,
 
-##### 3:18
+##### 3,18
 Ci creşteţi în har şi în cunoaşterea Domnului nostru şi Mântuitorului Iisus Hristos. A Lui este slava, acum şi în ziua veacului! Amin.
 
